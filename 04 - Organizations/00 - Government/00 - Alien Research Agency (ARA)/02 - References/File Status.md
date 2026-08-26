@@ -1,0 +1,15 @@
+#cru 
+
+## ACTIVE 
+
+## CONTAINED 
+
+## MISSING 
+
+## DESTROYED 
+
+## COMPROMISED 
+
+## UNKNOWN 
+
+## EXISTENTIAL RISK 
