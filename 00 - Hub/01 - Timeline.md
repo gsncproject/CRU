@@ -122,7 +122,7 @@
 
 ## 2025+ / Date TBD
 
-### [[Lara‘s Idea]] — Spain Branch
+### [[What Was Coming]] — Spain Branch
 - **Location:** [[Barcelona, Spain (CRU)]]
 - Exact timeline placement is currently **TBD**.
 - [[Luis de la Fluente]] begins experiencing visions of events that have not yet happened.
@@ -141,7 +141,7 @@ The following stories are part of the CRU Hub but do not currently have enough e
 
 - [[The Jamie Taylor Case - Overview|The Jamie Taylor Case]] — **TBD**
 - [[The Theatrics of the Law - Overview|The Theatrics of the Law]] — **TBD**
-- [[Lara‘s Idea]] — currently **TBD**; included above as a future/unplaced story rather than assigned a year
+- [[What Was Coming]] — currently **TBD**; included above as a future/unplaced story rather than assigned a year
 
 ---
 

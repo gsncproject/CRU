@@ -1,14 +1,12 @@
 #cru #atgtt #auts #cr #df #icfi #og #rm #tcoym #tjtc #ttotl 
 
 # CRU Hub:
-
 ## 00 - Hub 
 - [[00 - CRU Hub]]
 - [[01 - Timeline]]
 - [[02 - Story Order]]
 - [[03 - Reading Order]]
 - [[04 - Glossary]]
-
 ## 01 - Stories 
 - [[A Techies Guide to Trouble - Overview|A Techies Guide to Trouble]]
 - [[Autumn - Overview|Autumn]]
@@ -20,13 +18,11 @@
 - [[The Circus of Your Mind - Overview|The Circus of Your Mind]]
 - [[The Jamie Taylor Case - Overview|The Jamie Taylor Case]]
 - [[The Theatrics of the Law - Overview|The Theatrics of the Law]]
-
 ## 02 - Characters
 - **Familes**:
 	- [[00 - Families Hub]]
 - [[00 - Character Index]]
 - [[01 - Antagonists]]
-
 ## 03 - World
 - **Countries**:
 	- [[United States of America (CRU)]]
@@ -39,7 +35,6 @@
 	- [[Northbridge, NY (CRU)]]
 - **Buildings**:
 - **Landmarks**:
-
 ## 04 - Organizations
 - **Government**:
 	- [[Alien Research Agency]]
@@ -52,12 +47,10 @@
 - **Schools**:
 	- [[Northbridge High School]]
 	- [[Northbridge Middle School]]
-
 ## 05 - Lore 
 - **History**:
 - **Science**:
 - **Entities**:
-
 ## 06 - Relationships
 - **Family Trees**:
 - **Friendships**:
@@ -65,13 +58,11 @@
 - **Team**:
 - **Mentorship**:
 - **Romantic**:
-
 ## 07 - Planning 
 - **Story Ideas**:
 	- [[Weight of Tomorrow - Overview|Weight of Tomorrow]]
 - **Scene Ideas**:
 - [[00 - Character Ideas]]
-
 ## 08 - Documents
 - **Government Files**:
 - **Incident Reports**:
@@ -80,7 +71,6 @@
 - **Emails**:
 - **Case Files**:
 - **Mission Briefings**:
-
 ## 09 - Assets
 - **Playlists**:
 - **Reference**:
