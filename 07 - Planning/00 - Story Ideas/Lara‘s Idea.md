@@ -7,6 +7,11 @@ After experiencing a strange vision in which he cannot see his own hands, Luis d
 - [[Ally de la Fluente]]
 ## Supporting Cast
 - [[Loenna Thornton]]
+- [[Mateo Serrano]]
+- [[Valeria Costa]]
+- [[Adrián Morales]]
+- [[Isabel Ferrer]]
+- [[Lucía Romero]]
 ## Timeline Placement
 [To be determined]
 ## Location
