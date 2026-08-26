@@ -19,13 +19,13 @@ In [[Origins - Overview|Origins]], [[Director Aiden Janson]] encounters a being 
 
 In [[Clyde Rules - Overview|Clyde Rules]], Clyde appears to twelve-year-old [[Jamie Taylor]] as the dead outlaw and becomes the person Jamie trusts most. Jamie's growing trust in Clyde and distrust of authority ultimately contributes to the events leading to Jamie's death.
 
-In [[The Circus of Your Mind]], Clyde appears to [[Jeremy Cade]] through dreams and a strange dream-theater. Jeremy initially assumes he is hallucinating or experiencing some kind of drug-induced dream. Clyde appears alongside a young Jamie Taylor and speaks to Jeremy directly. Jeremy later becomes increasingly obsessed with determining what Clyde actually is, considering possibilities such as a ghost, demon, or tulpa before concluding that he has no idea.
+In [[The Circus of Your Mind - Overview|The Circus of Your Mind]], Clyde appears to [[Jeremy Cade]] through dreams and a strange dream-theater. Jeremy initially assumes he is hallucinating or experiencing some kind of drug-induced dream. Clyde appears alongside a young Jamie Taylor and speaks to Jeremy directly. Jeremy later becomes increasingly obsessed with determining what Clyde actually is, considering possibilities such as a ghost, demon, or tulpa before concluding that he has no idea.
 
-Clyde's exact relationship to the historical Clyde Barrow, the entity encountered in [[Origins]], and the later appearances across CRU remains unresolved.
+Clyde's exact relationship to the historical Clyde Barrow, the entity encountered in [[Origins - Overview|Origins]], and the later appearances across CRU remains unresolved.
 ## Relationships
 - [[Jamie Taylor]] (Clyde appears to him; Jamie trusts him)
 - [[Jeremy Cade]] (appears to him through dreams)
-- [[Director Aiden Janson]] (encounters the Clyde-like entity in [[Origins]])
+- [[Director Aiden Janson]] (encounters the Clyde-like entity in [[Origins - Overview|Origins]])
 - [[Director Howard Beckham]] (the entity later impersonates him)
 ## Story Appearance
 - [[Origins - Overview|Origins]]
