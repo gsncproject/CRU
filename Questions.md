@@ -63,4 +63,12 @@
 25. Yes he can, but he never does (so far).
 26. YES.
 27. Yes.
-28. Yes, e.g. Jerm
+28. Yes, e.g. Jeremy dreams.
+29. Yes, for them Clyde is not „one of theirs“.
+30. HELL Yeah-
+31. He can‘t be killed. so ye wrong concept-
+32. YES 
+33. Yeah he does, but he is confused by it because he still sees everyone but no one sees him.
+34. Sadly yes.
+35. Yeah.
+36. He tries, sometimes he succeeds some
