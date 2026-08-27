@@ -11,14 +11,14 @@
 - Occupation: Not established
 - Status: Not established
 ## Personality
-Not established in the current CRU material.
+Not established.
 ## Appearance
 Not established.
 ## Biography
-Felix Mercer is a character listed in the CRU Character Index. Further biographical information has not yet been established in the accessible canon.
+Felix Mercer is a character in the CRU. No further confirmed biographical information has been established yet.
 ## Relationships
 Not established.
 ## Story Appearance
 Not yet sufficiently established.
 ## Trivia
-- Listed in the CRU Character Index.
+- Felix remains a background/side character in the current canon.
