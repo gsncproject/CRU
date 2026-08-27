@@ -15,4 +15,15 @@
 14. Neither. Well, kinda ghosts do exist but not in the way ur thinking. Yes, Jamie could be an actual ghost after cr, but in tcoym I havent yet decided if he is a clyde manifesto or a ghost. And Clyde comes closer to something like a Tulpa/Egregore/Djinn.
 15. I have nothing decided for Spain cuz it was all Lara‘s idea but I am thrilled to find out what it gets to be.
 16. Still havent decided but Lara wants him to be 18 years old. He is friends with Loenna which connects him to the UK Branch, cuz as we established Loen is a significant character in tcoym (cuz she‘s Korras sister and Jeremys biggest critic)
-17. (BAHHAH explained in the above) but to detail it: Loenna Th
+17. (BAHHAH explained in the above) but to detail it: Loenna Thornton is a seventeen year old girl who lives with her older sister Korra Thornton who is a journalist. Loenna is a theater kid, and loves to bicker with Jeremy cuz she sees him as somethig like an older brother, so yeah-
+18. if u mean as like in a timeline its like (I havent yet established everything):
+	1. OG (1988, December)
+	2. Autumn (2023, September)
+	3. DF (2024, July)
+	4. TCOYM & CR (2024, September (happens at the same time))
+	5. RM & TJTC (2024, August (happens at the same time but no connection whatsoever))
+	6. ATGTT (2025, June)
+	7. WOT (2025, June (happens a week after ATGTT))
+19. Help, u ask things of me… Okay, I‘ll try my best but DONT FUCKING JUDGE ME IF I FUCK UP:
+	1. Ofc all who are in the same stories have met, duh.
+	2. Oke no I think the above is that… 
