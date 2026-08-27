@@ -71,4 +71,12 @@
 33. Yeah he does, but he is confused by it because he still sees everyone but no one sees him.
 34. Sadly yes.
 35. Yeah.
-36. He tries, sometimes he succeeds some
+36. He tries, sometimes he succeeds sometimes not.
+37. He does, HE FUCKING DOESSSSS
+38. Could, and will.
+39. He can, but question is if cops believe Sam if she tells them her dead brother told her.
+40. Now id say its Jamie‘s ghost.
+41. No, he doesn‘t
+42. No he cant.
+43. Yes, both-
+44. 
