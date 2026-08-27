@@ -156,4 +156,11 @@
 66. He is this typical old school „stick to ur roots“ shit.
 67. Yes, and he doesnt want Winn involved at all.
 68. No.
-69. 
+69. Elena has been Director-General for 20 years.
+70. She appears strict, and sometimes is very strict but truly she is very kind and caring.
+71. Yes.
+72. Elena doesnt exactly likes Janson but she knows his history and that he is the right one to direct the NYC facility.
+73. If it were only her decision she‘d destroy MAC yesterday.
+74. Yes.
+75. No.
+76. 
