@@ -13,7 +13,18 @@
 	- (Related to Malik Hart)
 - Elio Cade 
 - Sofia Melina Finch 
-- Luis de la Fluente SÌ
+- Apollo Krimano
+- Frieda Utrecht Christina Kerstin
+- Hendrick Henderson
+- Josuke Hiroshikata
+- Jotaro
+- Kazuha
+- Kira Yoshikage
+- Kokuyain
+- Lentos Dolores
+- Okuyasa
+- Winn Jinn
+- Childe
 
 ## Archived Characters:
 - Cassian Janson 
