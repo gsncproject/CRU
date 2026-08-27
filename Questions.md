@@ -203,4 +203,9 @@
 113. Sage is one of the hackers of ARA, and she is the secret child of Janson.
 114. Yes, in WOT.
 115. cheeky and sarcastic while trying to be serious.
-116. Malik is a friend of Kyra Aldun and owns a bar named „Old Golden Inn“ in the Broadway District. And he is a part of the group in 
+116. Malik is a friend of Kyra Aldun and owns a bar named „Old Golden Inn“ in the Broadway District. And he is a part of the group in ATGTT trying to catch Oscar, etc.
+117. Yes, Clara is his younger sister.
+118. unoffically ARA, offically none.
+119. Quiet but always knows what to say.
+120. A bit, not everything but quite some stuff.
+121. In ATGTT Oscar is Kierans best friend, but also the vigilante in the story
