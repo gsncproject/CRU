@@ -5,6 +5,8 @@
 - Full Name: John Curtis
 - Aliases: Curtis
 - Birthday: December 3rd 1973
+- Birthplace: Chicago, IL
+- Age: 50 (2024); 51 (2025)
 - Residence: [[New York City, NY (CRU)]]
 - Occupation: Leader of [[Marble Arch Council]]
 - Status: Alive
