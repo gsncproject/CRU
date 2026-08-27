@@ -3,37 +3,69 @@
 # Clyde Barrow (CRU)
 ## Basic Information
 - Full Name: Clyde Barrow
-- Aliases: None established
+- Aliases: None established; he adopted the name because his primary appearance resembles Clyde Barrow (Jeremy Jordan version)
 - Birthday: Unknown
 - Residence: Unknown
-- Occupation: Outlaw (historical identity)
-- Status: Dead / deceased identity; current nature unknown
+- Nature: Supernatural entity; exact classification unknown, closest to a Tulpa/Egregore/Djinn-like entity
+- Status: Active / cannot be killed
+- Role: Antagonist
 ## Personality
-Clyde is portrayed as intimidating, cryptic, and strangely casual about death. In Jeremy Cade's encounters with him, he is sarcastic and seemingly amused by Jeremy's fear and confusion. He speaks with an old-fashioned Southern accent and often behaves as though he already knows more about the situation than the people around him.
+Clyde is intimidating, cryptic, sarcastic, and strangely casual about death. He acts according to his own impulses and has no known grand objective. He can be amused by people's fear and confusion and is manipulative, particularly toward vulnerable people. Despite his ability to know everything happening everywhere, he does not appear to have an ultimate plan.
 ## Appearance
-Clyde appears as a man dressed in a style associated with the 1930s, most notably wearing a fedora. In Jeremy Cade's dream-theater encounter, Clyde appears as an adult man standing beside a young version of Jamie Taylor. His appearance is recognizable enough for Jeremy to associate him with the famous outlaw Clyde Barrow.
+Clyde's primary form is the appearance of Clyde Barrow as portrayed by Jeremy Jordan. This is not his original form; it is an adopted appearance. He can change his appearance and impersonate other people. His original form is unknown because nobody has ever seen it.
+## Abilities
+- Omniscience: Clyde knows everything that happens everywhere.
+- Manifestation: He can simply make himself exist without needing an invitation, belief, or acknowledgement.
+- Simultaneous manifestation: He can appear to multiple people and exist in multiple places at once.
+- Dream manipulation/access: He can enter people's dreams.
+- Shapeshifting/impersonation: He can change his appearance and impersonate people, including Jamie Taylor.
+- Supernatural manipulation: He can influence vulnerable people into actions they might not otherwise take.
+- Soul/consciousness trapping: People who die because of Clyde can become trapped on Earth.
+- Immortality: Clyde cannot be killed.
 ## Biography
-The exact history and nature of Clyde Barrow (CRU) is currently unknown.
+The entity known as Clyde Barrow has no known original identity or true form. He adopted the appearance and name of Clyde Barrow because his chosen form resembles Clyde Barrow (Jeremy Jordan version).
 
-In [[Origins - Overview|Origins]], [[Director Aiden Janson]] encounters a being at an enemy black-site that appears to be [[Clyde Barrow (CRU)]]. The story explicitly describes this as either Clyde Barrow or a thing disguising itself as him. The entity later appears as [[Director Howard Beckham]], confirming that it can take on the appearance of other people. Aiden initially believes he has killed the Clyde-like entity, but it later reappears in another form.
+In [[Origins - Overview|Origins]], [[Director Aiden Janson]] encounters the entity at an enemy black-site. It can impersonate [[Director Howard Beckham]] and later survives despite Aiden believing he has killed it. This is the earliest known major appearance of the entity, dating to the 1988 events of the CRU.
 
-In [[Clyde Rules - Overview|Clyde Rules]], Clyde appears to twelve-year-old [[Jamie Taylor]] as the dead outlaw and becomes the person Jamie trusts most. Jamie's growing trust in Clyde and distrust of authority ultimately contributes to the events leading to Jamie's death.
+In [[Clyde Rules - Overview|Clyde Rules]], Clyde appears to twelve-year-old [[Jamie Taylor]] after Jamie is bullied because of his ADHD and dyslexia and locked in a school storage room. Jamie is isolated, desperately needs someone to talk to, and is therefore easy for Clyde to manipulate. Jamie believes Clyde is an imaginary friend. They know each other for about a year.
 
-In [[The Circus of Your Mind - Overview|The Circus of Your Mind]], Clyde appears to [[Jeremy Cade]] through dreams and a strange dream-theater. Jeremy initially assumes he is hallucinating or experiencing some kind of drug-induced dream. Clyde appears alongside a young Jamie Taylor and speaks to Jeremy directly. Jeremy later becomes increasingly obsessed with determining what Clyde actually is, considering possibilities such as a ghost, demon, or tulpa before concluding that he has no idea.
+Clyde eventually influences Jamie into attacking [[Director Richard Thornton]] at Sunders Bridge. Richard had approached Jamie believing the boy was about to kill himself and attempted to talk him down. After Clyde tells Jamie to attack, Jamie charges Richard and gets hold of his gun. During the ensuing struggle Richard regains the gun and shoots Jamie in the side of the neck, killing him. Jamie blames Richard for his death, but not himself.
 
-Clyde's exact relationship to the historical Clyde Barrow, the entity encountered in [[Origins - Overview|Origins]], and the later appearances across CRU remains unresolved.
+In [[The Circus of Your Mind - Overview|The Circus of Your Mind]], Clyde appears through [[Jeremy Cade]]'s dreams and the strange dream-theater. Clyde wants Jeremy to write Jamie's story, while Jeremy does not realize that the events he is writing about are real. Clyde is therefore able to influence the story indirectly through Jeremy.
+
+In [[TJTC - Overview|The Theatrics of the Crime]], Clyde can impersonate Jamie and is encountered by people other than Jamie. [[Winston Desjardins]] also begins seeing Clyde.
+
+In [[Remember Me - Overview|Remember Me]], Clyde targets [[Cade Clay Buchanan]] (Buck Buchanan), who is obsessed with the historical Clyde Barrow and begins seeing the entity. Buck becomes one of the few victims of Clyde to survive.
+## Jamie Taylor
+- Clyde specifically targeted Jamie because he was a child who was easy to manipulate and desperately needed someone to talk to.
+- Clyde did not genuinely care about Jamie.
+- Jamie never realized Clyde was manipulating him.
+- Jamie believed Clyde was his imaginary friend.
+- Clyde influenced Jamie into attacking Richard Thornton.
+- Jamie's death ultimately results in him becoming a ghost/consciousness that remains on Earth.
 ## Relationships
-- [[Jamie Taylor]] (Clyde appears to him; Jamie trusts him)
-- [[Jeremy Cade]] (appears to him through dreams)
-- [[Director Aiden Janson]] (encounters the Clyde-like entity in [[Origins - Overview|Origins]])
-- [[Director Howard Beckham]] (the entity later impersonates him)
+- [[Jamie Taylor]] — manipulated him; Jamie trusted Clyde as an imaginary friend
+- [[Jeremy Cade]] — appears to him through dreams and wants him to write Jamie's story
+- [[Director Richard Thornton]] — Jamie's attack on Richard leads to Jamie's death
+- [[Director Aiden Janson]] — encountered Clyde in 1988
+- [[Director Howard Beckham]] — impersonated by Clyde
+- [[Cade Clay Buchanan]] — later victim who survives
+- [[Winston Desjardins]] — sees Clyde in TJTC
 ## Story Appearance
 - [[Origins - Overview|Origins]]
 - [[Clyde Rules - Overview|Clyde Rules]]
 - [[Remember Me - Overview|Remember Me]]
 - [[The Circus of Your Mind - Overview|The Circus of Your Mind]]
-## Trivia
-- Clyde's most recognizable visual feature in CRU is his fedora.
-- Jeremy describes him as looking like he came out of a 1950s movie about famous outlaws, despite Clyde's appearance being associated with the 1930s.
-- Jeremy repeatedly questions whether Clyde is a ghost, demon, tulpa, hallucination, or something extraterrestrial/otherworldly.
-- The nature of Clyde is deliberately unresolved in the current CRU material.
+- [[TJTC - Overview|The Theatrics of the Crime]]
+## Trivia / Classification
+- Clyde is not a ghost.
+- Clyde is not the historical Clyde Barrow.
+- Clyde's Jeremy Jordan/Clyde Barrow appearance is an adopted form.
+- Nobody has seen Clyde's original form.
+- Clyde has no known ultimate goal.
+- Clyde can exist in multiple places simultaneously.
+- Clyde does not need anyone to believe in him or invite him into existence.
+## Open Questions
+- Clyde's true/original form
+- His exact supernatural classification
+- Why he exists
