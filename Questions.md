@@ -239,4 +239,9 @@
 149. Maurice is Johns father.
 150. John Curtis is the cold hearted antagonist who pretty much is hard to kill.
 151. Tf, no he isnt related to Ponyboy, lol-
-152. Cold, brut
+152. Cold, brutal, manipulative, obsessive
+153. Maurice established MAC.
+154. John is his son.
+155. Founder of MAC 
+156. Dennis and Mila are Coreys parents. Lucas is her little brother and Kayleigh her big sister.
+157. She (YES ITS A HERRRRR) is part of the Lab Four group (Kieran, Kyra, Corey) and is just like Kieran one
