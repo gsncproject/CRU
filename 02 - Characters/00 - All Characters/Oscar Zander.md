@@ -7,7 +7,7 @@
 - Birthday: August 28th, 2001
 - Birthplace: Bakersville, RI
 - Age (2024): 22
-- Residence: Not established
+- Residence: [[New York City, NY (CRU)]]
 - Occupation: Vigilante; MAC operative
 - Status: Alive / current status not established
 ## Personality
@@ -15,7 +15,7 @@ Oscar is manipulative. His involvement with MAC and his upbringing around the or
 ## Appearance
 Not established.
 ## Biography
-Oscar Zander is [[Kieran Jamie Shaw]]'s best friend in [[ATGTT - Overview|ATGTT]]. At the same time, he is the vigilante that ARA and Kieran's group are trying to catch, making him an antagonist despite his friendship with Kieran.
+Oscar Zander is [[Kieran Jamie Shaw]]'s best friend in [[A Techies Guide to Trouble - Overview|A Techies Guide to Trouble]]. At the same time, he is the vigilante that ARA and Kieran's group are trying to catch, making him an antagonist despite his friendship with Kieran.
 Oscar works for MAC and grew up with MAC as part of his environment. That history helped shape him and his actions.
 ## Relationships
 - [[Winston Zander]] — father
@@ -25,7 +25,7 @@ Oscar works for MAC and grew up with MAC as part of his environment. That histor
 - [[Corey Gatsby]] — involved in the group pursuing him
 - [[Hayden Shaw]] — involved in the group pursuing him
 ## Story Appearance
-- [[ATGTT - Overview|ATGTT]] — antagonist
+- [[A Techies Guide to Trouble - Overview|A Techies Guide to Trouble]] — antagonist
 ## Trivia
 - Born August 28th, 2001 in Bakersville, Rhode Island.
 - He is Kieran's best friend while simultaneously being the vigilante Kieran and others are trying to catch.
