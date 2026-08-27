@@ -29,7 +29,7 @@ Kyra's established CRU connections extend beyond ATGTT through [[I Couldn‘t Fi
 - [[Oscar Zander]] (enemy)
 - [[Winston Zander]] (enemy)
 - [[Wren Carter]] (acquaintance)
-- [[Winn Desjardins]] (acquaintance)
+- [[Winston Desjardins]] (acquaintance)
 - [[Sam Taylor]] (acquaintance)
 ## Story Appearance
 - [[A Techies Guide to Trouble - Overview|A Techies Guide to Trouble]]

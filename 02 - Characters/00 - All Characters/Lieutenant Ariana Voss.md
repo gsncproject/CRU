@@ -7,7 +7,7 @@
 - Birthday: July 11th, 1982
 - Birthplace: Gettysburg, PA
 - Age (2024): 42
-- Residence: Not established
+- Residence: No
 - Occupation: Lieutenant, U.S. Military
 - Status: Alive
 ## Personality

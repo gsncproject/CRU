@@ -7,7 +7,7 @@
 - Birthday: July 2nd, 1998
 - Birthplace: Kingston upon Thames, United Kingdom
 - Age (2024): 26
-- Residence: London, United Kingdom
+- Residence: [[London, UK (CRU)]]
 - Occupation: Journalist
 - Status: Alive
 ## Personality
