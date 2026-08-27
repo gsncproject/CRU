@@ -94,5 +94,7 @@
 4. No he does know everything that happens everywhere, which is why he can be an multiple places at once.
 5. Yes.
 6. No, he can just… make himself exist.
-7. Because Jamie is a kid and he‘s very easy to get.
-8. 
+7. Because Jamie is a kid and he‘s very easy to get and because he desperately needed someone to talk with. 
+8. No.
+9. No.
+10. Before Clyde Jamie was this typical obnoxious boy kinda type, mostly because of his ADHD, but at the same time he could be quiet and isolated because he had no friends. He barely understand others emotions and 
