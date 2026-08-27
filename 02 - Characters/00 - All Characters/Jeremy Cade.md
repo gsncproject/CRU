@@ -4,8 +4,9 @@
 ## Basic Information
 - Full Name: Jeremy Cade
 - Aliases: None established
-- Birthday: Unknown
-- Age: Adult; exact age unknown
+- Birthday: March 14th 1997
+- Birthplace: Cambridge, United Kingdom
+- Age: 27 in 2024
 - Residence: United Kingdom; exact location unknown
 - Occupation: Playwright / theatre writer
 - Status: Alive
@@ -40,6 +41,7 @@ Jeremy later crosses into the events of [[Weight of Tomorrow - Overview|Weight o
 - [[Weight of Tomorrow - Overview|Weight of Tomorrow]]
 
 ## Trivia
+- Jeremy was born on March 14th, 1997, in Cambridge, United Kingdom.
 - Jeremy writes about real events without initially knowing they are real.
 - The real events he writes about take place in the USA while Jeremy is based in the UK.
 - Clyde specifically wants Jeremy to tell Jamie's story.
