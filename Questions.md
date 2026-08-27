@@ -296,4 +296,7 @@
 9. He works for MAC, and therefore while also growing up with it it all kinda build up and shit.
 10. Both.
 11. the latter.
-12. 
+12. To expose government secrets after WW2
+13. Lab Four is literally the Lab number. However in ATGTT Lab Four is just them three and in WOT is becomes (Kieran, Kyra, Sage, Seymour, Janson, (Jeremy)), no Corey cuz she dead.
+14. Je ne sais pas-
+15. Both, it is the meeting spot for the group (Kieran, )
