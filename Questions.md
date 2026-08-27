@@ -37,4 +37,6 @@
 
 ## Death Factor:
 1. A, C, D
-2. 
+2. Yes, I wouldnt say that science detected it, but due to ARA research and inhumanly experimences conducted by MAC they found souls do exist.
+3. Yes.
+4. I would say but it depends on the person. For examp
