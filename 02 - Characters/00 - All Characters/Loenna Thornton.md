@@ -7,7 +7,7 @@
 - Birthday: June 30th, 2007
 - Birthplace: Kingston upon Thames, United Kingdom
 - Age (2024): 17
-- Residence: London, United Kingdom, with her older sister
+- Residence: [[London, UK (CRU)]], with her older sister
 - Occupation: Student; theater kid
 - Status: Alive
 ## Personality
