@@ -4,8 +4,9 @@
 ## Basic Information
 - Full Name: Aiden Janson
 - Aliases: Janson
-- Birthday: Unknown
-- Age: Unknown
+- Birthday: November 24th 1967
+- Age: 56–57 during the 2024 stories
+- Birthplace: [[Brooklyn, NY (CRU)]]
 - Residence: New York City, USA
 - Occupation: Director of the New York City Branch of the [[Alien Research Agency]]
 - Status: Alive / unknown
