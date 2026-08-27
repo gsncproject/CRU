@@ -289,3 +289,11 @@
 2. B.
 3. Sages mom is unknown but Janson knows Sage is his daughter and Sage knows Janson is her father.
 4. Yes. He protects her. ANd then he joins Lab Four Group in WOT…
+5. They‘re a couple. 
+6. Both. Finn is also one of the agents who arrest Jeremy to take him to containment.
+7. Yep.
+8. Je ne sais pas 
+9. He works for MAC, and therefore while also growing up with it it all kinda build up and shit.
+10. Both.
+11. the latter.
+12. 
