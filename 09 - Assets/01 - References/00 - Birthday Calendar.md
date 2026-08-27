@@ -29,7 +29,7 @@
 - Dylan Thornton — May 9th 2009 in San Francisco, CA 
 
 ## June 
-- Howard Backham — Jun. 4th 1935 in Washingtion D.C
+- Howard Beckham — Jun. 4th 1935 in Washingtion D.C
 - Wayne Bourne — Jun. 9th 1970 in Spokane, WA
 - Loenna Thornton — Jun. 30th 2007 in Kingston upon thames, United Kingdom 
 - Lucas Gatsby — Jun. 7th 2011 in Harlem, NY
