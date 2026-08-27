@@ -98,4 +98,8 @@
 8. No.
 9. No.
 10. Before Clyde Jamie was this typical obnoxious boy kinda type, mostly because of his ADHD, but at the same time he could be quiet and isolated because he had no friends. He barely understand others emotions and deliberately avoids confrontations. He deeply cared for his mom and Sam but never knew how to show it.
-11. After some kids in school bullied Jamie because of his ADHD and dyslexia and locked him in some storage room, thats when C
+11. After some kids in school bullied Jamie because of his ADHD and dyslexia and locked him in some storage room, thats when Clyde first appeared.
+12. About a year.
+13. No, Jamie never even considered that.
+14. Clyde was influencing him.
+15. Well, Thornton tried to talk Jamie down, because he found Jamie at Sunders Bridge thinking the kid was gonna kill himself, then Jamie charges at him after Clyde said he should, he gets hold of Thorntons gun, and the stuff just evolves… 
