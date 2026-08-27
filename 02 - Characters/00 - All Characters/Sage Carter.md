@@ -8,17 +8,27 @@
 - Birthplace: Brooklyn, NY
 - Age: Not established
 - Residence: Not established
-- Occupation: Not established
-- Status: Not established
+- Occupation: ARA hacker
+- Status: Alive
 ## Personality
-Not established in the current CRU material.
+Sage is cheeky and sarcastic while trying to remain serious.
 ## Appearance
 Not established.
 ## Biography
-Sage Carter is a CRU character listed in the Character Index. Further biographical information has not yet been established in the accessible canon.
+Sage Carter is one of ARA's hackers and is secretly the daughter of [[Director Aiden Janson]]. Sage knows Janson is her father, and Janson knows she is his daughter. Sage's mother is currently unknown.
+Sage becomes part of Lab Four in [[WOT - Overview|Weight of Tomorrow]], alongside [[Kieran Jamie Shaw]], [[Kyra Aldun]], [[Seymour Collins]], [[Director Aiden Janson]], and potentially [[Jeremy Cade]]. [[Corey Gatsby]] is absent because she is dead by this point.
+Sage is a protagonist.
 ## Relationships
-Not established.
+- [[Director Aiden Janson]] — father; their relationship is kept secret
+- [[Wren Carter]] — cousin
+- [[Kieran Jamie Shaw]] — Lab Four colleague
+- [[Kyra Aldun]] — Lab Four colleague
+- [[Seymour Collins]] — Lab Four colleague
 ## Story Appearance
-Not yet sufficiently established.
+- [[WOT - Overview|Weight of Tomorrow]] — protagonist
 ## Trivia
-- Born March 26th in Brooklyn, New York; the birth year is currently unknown.
+- Born March 26th in Brooklyn, New York; birth year unknown.
+- Her mother is unknown.
+- She is secretly Janson's daughter.
+- Janson protects her.
+- She joins Lab Four in WOT.
