@@ -26,4 +26,11 @@
 	7. WOT (2025, June (happens a week after ATGTT))
 19. Help, u ask things of me… Okay, I‘ll try my best but DONT FUCKING JUDGE ME IF I FUCK UP:
 	1. Ofc all who are in the same stories have met, duh.
-	2. Oke no I think the above is that… 
+	2. Oke no I think the above is that… seriously, e.g. all who are in TCOYM overview have met, and so on for all stories 
+20. OOOHHHHH JUICY
+	1. The public doesnt know about ARA 
+	2. The public kinda knows about aliens but not much 
+	3. No one except ppl involved know about Clyde.
+	4. Jamie‘s death is publicly known, but it isnt publicly known who killed him (thats why tjtc)
+	5. (and i dont know more, welp)
+21. To all ur listed questions: YES HELL FUCKING YES
