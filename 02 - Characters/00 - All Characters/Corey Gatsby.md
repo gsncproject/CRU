@@ -5,6 +5,8 @@
 - Full Name: Corey Alexandra Gatsby
 - Aliases: Agent Gatsby
 - Birthday: July 7th 1997
+- Birthplace: Harlem, NY
+- Age: 27 (2024); 28 (2025)
 - Residence: [[New York City, NY (CRU)]]
 - Occupation: Resident Tech and Field Agent at the [[Regional Headquarters New York City]]
 - Status: Deceased
