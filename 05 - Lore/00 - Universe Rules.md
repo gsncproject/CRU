@@ -33,7 +33,7 @@
 - The general public does not know that the ARA exists.
 - The ARA has international branches.
 - The [[Washington Branch]] is above the NYC Branch.
-- [[Elena Rostova]] directs the Washington Branch and is above [[Director Aiden Janson]].
+- [[Director-General Elena Rostova]] directs the Washington Branch and is above [[Director Aiden Janson]].
 - [[Director Aiden Janson]] directs the NYC Branch.
 
 ## Clyde's Origin

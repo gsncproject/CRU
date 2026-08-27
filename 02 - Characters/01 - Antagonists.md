@@ -20,10 +20,12 @@
 - [[Director Aiden Janson]] — antagonist/authority conflict depending on the point in the story 
 - [[Oscar Zander]]
 - [[Winston Zander]]
+- [[John Curtis]]
 - [[Lieutenant Ariana Voss]] 
 ## Weight of Tomorrow
 - [[Director Aiden Janson]]
 - [[Finn Kaelen]]
+- [[John Curtis]]
 - [[Lieutenant Ariana Voss]]
 ## What Comes Next
 - **No confirmed antagonist currently established.**

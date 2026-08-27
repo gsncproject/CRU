@@ -1,6 +1,6 @@
 #cru
 
-# Sam Taylor (CRU)
+# Sam Taylor 
 ## Basic Information
 - Full Name: Sam Taylor
 - Aliases: None established

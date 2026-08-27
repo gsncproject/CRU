@@ -1,6 +1,6 @@
 #cru
 
-# Jamie Taylor (CRU)
+# Jamie Taylor 
 ## Basic Information
 - Full Name: James Taylor Junior
 - Aliases: None established
