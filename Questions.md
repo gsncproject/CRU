@@ -259,4 +259,22 @@
 169. Lemme correct IT IS SEYMOUR COLLINS. Seymour is an intern at ARA in WOT, but Kyra hates him. And she never met Kayleigh.
 170. Deadpan and likes to blow stuff up and is also very protective of her RedBull.
 171. Nah theyre fam.
-172. 
+172. Well here is the list:
+	1. Protagonists:
+		1. Kieran 
+		2. Jamie
+		3. Kyra 
+		4. Corey 
+		5. Hayden 
+		6. Malik 
+		7. Wren 
+		8. Winn 
+		9. Sam 
+		10. Buck 
+	2. Antagonists:
+		1. Oscar 
+		2. Winston 
+		3. John 
+		4. Clyde (obvi)
+		5. Ben 
+		6. 
