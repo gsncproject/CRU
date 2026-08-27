@@ -63,7 +63,7 @@ For example, alternate versions of the same character can have completely differ
 ## 9. Jamie Taylor
 [[Jamie Taylor]]'s death demonstrates several of these rules.
 
-After [[Jamie Taylor]] is killed by [[Richard Thornton]], Jamie's consciousness continues to exist. Jamie knows that he is dead, but he is confused because he can still see other people while they cannot normally see him.
+After [[Jamie Taylor]] is killed by [[Detective Richard Thornton]], Jamie's consciousness continues to exist. Jamie knows that he is dead, but he is confused because he can still see other people while they cannot normally see him.
 
 Jamie can sometimes communicate with his sister [[Sam Taylor]]. Sam interprets some of these encounters and signs as Jamie trying to help her solve his death.
 
