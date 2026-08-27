@@ -151,3 +151,9 @@
 61. No.
 62. Yes, cuz he starts seeing him too (TJTC is in Winn‘s POV)
 63. They clash a lot. Étienne always makes sure that Winn doenst do shit because of their „immigrant“ status. Tho, Winn already has the green card but Étienne doesnt. Étienne also always wants to talk French at home but Winn hates it.
+64. He works in an office.
+65. They clash a lot. He loves his son and wants the best for him, but for him Winn is „too American despite being born French.
+66. He is this typical old school „stick to ur roots“ shit.
+67. Yes, and he doesnt want Winn involved at all.
+68. No.
+69. 
