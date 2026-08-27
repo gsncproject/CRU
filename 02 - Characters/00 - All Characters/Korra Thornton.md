@@ -9,20 +9,24 @@
 - Age (2024): 26
 - Residence: London, United Kingdom
 - Occupation: Journalist
-- Status: Alive / current status otherwise not established
+- Status: Alive
 ## Personality
-Not fully established. Korra is close enough to [[Jeremy Cade]] for him to explain his play and research to her, and she is the older sister and guardian-like household figure for [[Loenna Thornton]].
+Korra is a journalist who loves research. She is the older sister and guardian-like figure for Loenna. She has been close friends with [[Jeremy Cade]] since kindergarten.
 ## Appearance
 Not established.
 ## Biography
-Korra Thornton is a journalist living in London and the older sister of [[Loenna Thornton]]. The two live together.
-In [[The Circus of Your Mind - Overview|The Circus of Your Mind]], Jeremy explains his play to Korra while investigating the increasingly strange circumstances surrounding his writing.
+Korra Thornton is a journalist living with her younger sister [[Loenna Thornton]]. Their father is in prison and their mother is an alcoholic. Korra's friendship with Jeremy dates back to kindergarten, and she is the reason Loenna eventually meets him.
+Korra knows about Jeremy's sister-like/brother-like relationship with Loenna because she helped create that connection. She does not know that Jeremy's play is based on real events and does not know about ARA or the supernatural truth behind the story.
+Korra is in a relationship with [[Finn Kaelen]], who is two years older than her.
 ## Relationships
 - [[Loenna Thornton]] — younger sister; lives with her
-- [[Jeremy Cade]] — friend/acquaintance who explains his play and situation to her
+- [[Jeremy Cade]] — friend since kindergarten
+- [[Finn Kaelen]] — romantic partner
+- [[Richard Thornton]] — distant family connection; exact degree not established
 ## Story Appearance
-- [[The Circus of Your Mind - Overview|The Circus of Your Mind]] — main cast
+- [[The Circus of Your Mind - Overview|The Circus of Your Mind]] — supporting/main cast
 ## Trivia
 - Korra is 26 during TCOYM.
-- She works as a journalist.
-- She is Loenna's older sister.
+- She works as a journalist and loves research.
+- Her father is in prison and her mother is an alcoholic.
+- She introduced Loenna to Jeremy.
