@@ -299,4 +299,5 @@
 12. To expose government secrets after WW2
 13. Lab Four is literally the Lab number. However in ATGTT Lab Four is just them three and in WOT is becomes (Kieran, Kyra, Sage, Seymour, Janson, (Jeremy)), no Corey cuz she dead.
 14. Je ne sais pas-
-15. Both, it is the meeting spot for the group (Kieran, )
+15. Both, it is the meeting spot for the group (Kieran, Kyra, Corey, Hayden, Malik).
+16. Jace and Mikey… theyre arcchived.
