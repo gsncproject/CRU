@@ -79,4 +79,10 @@
 41. No, he doesn‘t
 42. No he cant.
 43. Yes, both-
-44. 
+44. It continues anyway, becazse ofc Jeremy cant write during his one year containment.
+45. Yes they do. They even keep files.
+46. Yes, thats the main purpose but due to MAC they often get off rails.
+47. They dont but they have their suspicions
+48. Yes.
+49. Well the body is gone but the persons consciousness not.
+50. It is something u can fuck with but no one reall
