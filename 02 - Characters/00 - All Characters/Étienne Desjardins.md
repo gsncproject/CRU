@@ -7,18 +7,20 @@
 - Birthday: November 23rd, 1975
 - Birthplace: Saint-Étienne, France
 - Age (2024): 48
-- Residence: Not established
-- Occupation: Not established
-- Status: Alive / current status otherwise not established
+- Residence: Northbridge, NY
+- Occupation: Office worker
+- Status: Alive
 ## Personality
-Not established in the current CRU material.
-## Appearance
-Not established.
+Étienne is old-school and strongly believes in sticking to one's roots. He loves his son and wants the best for him, but worries that Winn is "too American" despite being born French. He prefers speaking French at home, while Winn hates it.
 ## Biography
-Étienne Desjardins is a member of the Desjardins family and appears in [[The Jamie Taylor Case - Overview|The Jamie Taylor Case]]. Further biography is not yet established.
+Étienne Desjardins is the husband of [[Claire Madison]] and father of [[Winston Desjardins]]. He and Winn clash frequently. Étienne is particularly concerned about their immigrant status; Winn already has a green card, while Étienne does not. He does not want Winn becoming involved in the investigation surrounding Jamie's death.
 ## Relationships
-- [[Winston Desjardins]] — family relationship
+- [[Winston Desjardins]] — son
+- [[Claire Madison]] — wife
+- [[Sam Taylor]] — connected through Winn
 ## Story Appearance
 - [[The Jamie Taylor Case - Overview|The Jamie Taylor Case]] — supporting cast
 ## Trivia
 - Born November 23rd, 1975 in Saint-Étienne, France.
+- He insists on speaking French at home.
+- He and Winn clash over culture and their immigrant status.
