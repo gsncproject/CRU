@@ -208,4 +208,10 @@
 118. unoffically ARA, offically none.
 119. Quiet but always knows what to say.
 120. A bit, not everything but quite some stuff.
-121. In ATGTT Oscar is Kierans best friend, but also the vigilante in the story
+121. In ATGTT Oscar is Kierans best friend, but also the vigilante in the story that ARA tries to catch. So in a way he is an antagonist.
+122. Zander is Oscars father.
+123. Father.
+124. ATGTT.
+125. Manipulative.
+126. Hes his dadddddd.
+127. Zander is the second „director“ of MAC alo
