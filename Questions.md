@@ -42,4 +42,9 @@
 4. I would say but it depends on the person. For example I planed for Sam in TJTC to think/believe that Jamie is giving her signs to solve his death.
 5. OHHHHH, it depends on factors. If u die naturally it can be really anything, u could exist on earth or idk go meet God or Satan. And then there is Clyde… if u die because of him ur basically trapped on earth.
 6. Theoratically everyone can become a ghost.
-7. If ur not trapped by Clyde u can choose if u want 
+7. If ur not trapped by Clyde u can choose if u want to remain on earth or just… yk follow the light to whatever.
+8. Everyone who isnt trapped because of Clyde can move on. If ur trapped by Clyde thats more difficult to almost impossible.
+9. YES, they can interact with the world.
+10. HELL YEAHHH.
+11. After death the dead person stays who they were when they were alive.
+12. 
