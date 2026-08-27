@@ -121,4 +121,8 @@
 31. No, she thinks Sam is crazy. And says its just a coping mechanism.
 32. James died in action. He was a police officer in NYC.
 33. Jamie was two years old when his dad died.
-34. 
+34. James was, if ud ask Sam, the best father u could imagine, because when he was home, he was home and never get caught up with work. He made sure his children had a father who actually cared.
+35. Yes.
+36. He tries to protect his career and also because he is scared of the truth coming out.
+37. It was just an escalation, but in a way intended too.
+38. 
