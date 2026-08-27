@@ -7,7 +7,7 @@
 - Birthday: November 14th, 1994
 - Birthplace: Hamilton Heights, NY
 - Age (2024): 29
-- Residence: Broadway District, NYC
+- Residence: Broadway District, [[New York City, NY (CRU)]]
 - Occupation: Bar owner; unofficial ARA associate
 - Status: Alive
 ## Personality
@@ -25,7 +25,8 @@ In [[ATGTT - Overview|ATGTT]], Malik is part of the group trying to catch Oscar.
 - [[Hayden Shaw]] — group member
 - [[Oscar Zander]] — target of the group's pursuit
 ## Story Appearance
-- [[ATGTT - Overview|ATGTT]] — protagonist
+- [[A Techies Guide to Trouble - Overview|A Techies Guide to Trouble]] — protagonist
+- [[Weight of Tomorrow - Overview|Weight of Tomorrow]] — protagonist
 ## Trivia
 - Born November 14th, 1994 in Hamilton Heights, New York.
 - Owns the Old Golden Inn in the Broadway District.
