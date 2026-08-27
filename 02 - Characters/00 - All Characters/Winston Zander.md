@@ -8,17 +8,24 @@
 - Birthplace: Brooklyn, NY
 - Age (2024): 47
 - Residence: Not established
-- Occupation: Not established
-- Status: Alive / current status otherwise not established
+- Occupation: Director of MAC
+- Status: Alive / current status not established
 ## Personality
-Not established in the current CRU material.
+Winston is manipulative but not cold-hearted. He genuinely believes in MAC as well as having personal motivations for his involvement.
 ## Appearance
 Not established.
 ## Biography
-Winston Zander is a member of the Zander family and is listed in the CRU Character Index. Further biographical details have not yet been established.
+Winston Zander is the father of [[Oscar Zander]] and one of the two directors of MAC alongside [[John Curtis]]. He is deeply involved with MAC and both believes in its purpose and has personal reasons for his actions.
+Winston is an antagonist in the CRU. His position makes him one of the people directing MAC and places him directly against ARA and the protagonists of [[ATGTT - Overview|ATGTT]].
 ## Relationships
-- [[Oscar Zander]] — family relationship; exact relationship not yet established
+- [[Oscar Zander]] — son
+- [[John Curtis]] — fellow MAC director
+- [[Maurice Curtis]] — founder of MAC and John's father; connected through MAC
 ## Story Appearance
-Not yet sufficiently established.
+- [[ATGTT - Overview|ATGTT]] — antagonist
 ## Trivia
 - Born November 30th, 1976 in Brooklyn, New York.
+- He is Oscar Zander's father.
+- He is one of MAC's two directors.
+- He co-directs MAC with John Curtis.
+- He is manipulative but not cold-hearted.
