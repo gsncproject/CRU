@@ -194,4 +194,13 @@
 104. Because of what happened in ICFI.
 105. Sam and Winn talk and sit together at lunch and Wren just joins them.
 106. She likes mysteries.
-107. 
+107. Nope.
+108. Nope.
+109. Nope.
+110. Cousins.
+111. Cousins.
+112. Hell no.
+113. Sage is one of the hackers of ARA, and she is the secret child of Janson.
+114. Yes, in WOT.
+115. cheeky and sarcastic while trying to be serious.
+116. Malik is a friend of Kyra Aldun and owns a bar named „Old Golden Inn“ in the Broadway District. And he is a part of the group in 
