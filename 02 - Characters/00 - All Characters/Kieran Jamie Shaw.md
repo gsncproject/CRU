@@ -9,6 +9,8 @@ aliases:
 - Full Name: Kieran Jamie Shaw
 - Aliases: Jamie, Wynn, J, Agent Shaw
 - Birthday: October 21st 2004
+- Birthplace: Manhattan, NY
+- Age: 19 (2024); 20 (2025)
 - Residence: [[New York City, NY (CRU)]]
 - Occupation: Resident Tech at the [[Regional Headquarters New York City]]
 - Status: Alive
