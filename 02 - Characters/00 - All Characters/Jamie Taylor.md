@@ -2,7 +2,7 @@
 
 # Jamie Taylor (CRU)
 ## Basic Information
-- Full Name: Jamie Taylor
+- Full Name: James Taylor Junior
 - Aliases: None established
 - Age: 12 in [[Clyde Rules - Overview|Clyde Rules]]
 - Birthday: Unknown
