@@ -134,4 +134,11 @@
 44. Doesnt know him.
 45. Yes, due to Jeremy writing it, lol
 46. Nope.
-47. Loenna meets Jeremy due to Korra who had been friends with Jeremy since 
+47. Loenna meets Jeremy due to Korra who had been friends with Jeremy since Kindergarten.
+48. She genuinely cares about him writing good plays, and to prepare him for what Samuel Barnes (Jeremy‘s producer) might say.
+49. Yes.
+50. No.
+51. She loves to research.
+52. no.
+53. No, she doesnt know hes a real person.
+54. Yeah, she knows they have this sister-brother relationship because she is the cause for 
