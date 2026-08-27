@@ -1,4 +1,4 @@
-#cru #atgtt #df #icfi #tjtc #tcoym #wot
+#cru #atgtt #df #icfi #wot
 
 # New York City, New York
 ## Overview
@@ -9,8 +9,6 @@
 - [[A Techies Guide to Trouble - Overview|A Techies Guide to Trouble]]
 - [[Don‘t Forget - Overview|Don‘t Forget]]
 - [[I Couldn‘t Fix It - Overview|I Couldn‘t Fix It]]
-- [[The Jamie Taylor Case - Overview|The Jamie Taylor Case]]
-- [[The Circus of Your Mind - Overview|The Circus of Your Mind]]
 - [[Weight of Tomorrow - Overview|Weight of Tomorrow]]
 
 ## Locations
