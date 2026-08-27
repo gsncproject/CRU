@@ -166,4 +166,9 @@
 76. He has the repuation of gaining his status in ARA through morally grey action.
 77. Who the fuck is that? I have no Wynn Shepard…
 78. …
-79. He knows that back in 1988 Clyde was trapped in an object that then broke and caused havoc that caused JAnson to murder Director Howard Beckham, because pr
+79. He knows that back in 1988 Clyde was trapped in an object that then broke and caused havoc that caused JAnson to murder Director Howard Beckham, because prior Clyde had impersonated him.
+80. Yes, Clyde.
+81. Peter is Janson‘s uncle, and the one he grew up with after his parents died.
+82. Reeves is the Director of the Los Angeles ARA Branch…
+83. They have beef.
+84. He is equal to Janson but with fewer r
