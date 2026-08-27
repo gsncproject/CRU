@@ -29,7 +29,7 @@ Sam comes to believe Jamie is giving her signs to help solve his death. She even
 - [[Clyde Barrow (CRU)]] — supernatural entity connected to Jamie; Sam eventually learns of Clyde but never meets him directly
 ## Story Appearance
 - [[The Jamie Taylor Case - Overview|The Jamie Taylor Case]] — protagonist
-- [[Clyde Rules - Overview|Clyde Rules]]
+- [[Clyde Rules - Overview|Clyde Rules]] — side-charactee
 ## Trivia
 - Born December 24th, 2007 in White Plains, New York.
 - She is sixteen during TJTC in 2024.

@@ -7,7 +7,7 @@
 - Birthday: August 7th, 2006
 - Birthplace: Hempstead, NY
 - Age (2024): 18
-- Residence: Northbridge, NY
+- Residence: [[Northbridge, NY (CRU)]]
 - Occupation: Student
 - Status: Alive
 ## Personality

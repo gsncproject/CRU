@@ -7,7 +7,7 @@
 - Birthday: September 17th, 2006
 - Birthplace: Lyon, France
 - Age (2024): 17
-- Residence: Northbridge, NY
+- Residence: [[Northbridge, NY (CRU)]]
 - Occupation: Student
 - Status: Alive
 ## Personality
