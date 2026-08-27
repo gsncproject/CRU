@@ -47,4 +47,8 @@
 9. YES, they can interact with the world.
 10. HELL YEAHHH.
 11. After death the dead person stays who they were when they were alive.
-12. 
+12. No they cant forget.
+13. Ofc they can! Why wouldn‘t they????????
+14. Take Clyde as an example and ull get the answer yes. He can impersonate people. And in TJTC he impersonates Jamie at some point.
+15. Yeah, resurrection is possible. Just like its possible that Dean Winchester died and was resurrected like 170 times in 15 years.
+16. 
