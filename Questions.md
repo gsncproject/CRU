@@ -244,4 +244,14 @@
 154. John is his son.
 155. Founder of MAC 
 156. Dennis and Mila are Coreys parents. Lucas is her little brother and Kayleigh her big sister.
-157. She (YES ITS A HERRRRR) is part of the Lab Four group (Kieran, Kyra, Corey) and is just like Kieran one
+157. She (YES ITS A HERRRRR) is part of the Lab Four group (Kieran, Kyra, Corey) and is just like Kieran one of the tech people at the NYC branch of ARA.
+158. She is kind, but can be rude and strict and she serves as a mother role for Kieran and Kyra cuz they sometimes act like little kids.
+159. Hes a very bad influence.
+160. DF.
+161. Wrong story.
+162. MIKEY UNIMPORTANT
+163. MIKEY UNIMPORTANT
+164. MIKEY UNIMPORTANT 
+165. JACE UNIMPORTANT 
+166. JACE UNIMPORTANT
+167. 
