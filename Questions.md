@@ -254,4 +254,9 @@
 164. MIKEY UNIMPORTANT 
 165. JACE UNIMPORTANT 
 166. JACE UNIMPORTANT
-167. 
+167. Kyra is a field agent at ARA NYC Branch and part of the Lab Four group.
+168. WHO THE FUCK IS THAT 
+169. Lemme correct IT IS SEYMOUR COLLINS. Seymour is an intern at ARA in WOT, but Kyra hates him. And she never met Kayleigh.
+170. Deadpan and likes to blow stuff up and is also very protective of her RedBull.
+171. Nah theyre fam.
+172. 
