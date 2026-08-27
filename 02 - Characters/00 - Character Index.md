@@ -1,7 +1,7 @@
 #cru 
 
 # A
-- Aiden Janson 
+- [[Director Aiden Janson|Aiden Janson]]
 - Apollo Krimano
 - Ariana Voss 
 - Aris Vance
@@ -41,8 +41,8 @@
 
 # J
 - [[Kieran Jamie Shaw|Jamie Shaw]] 
-- Jamie Taylor 
-- Jeremy Cade 
+- [[Jamie Taylor]]
+- [[Jeremy Cade]]
 - [[John Curtis]] 
 - Josuke Hiroshikata
 - Jotaro
@@ -79,7 +79,7 @@
 - Robert Orlando 
 # S
 - Sage Carter 
-- Sam Taylor 
+- [[Sam Taylor]]
 - Samuel Barnes 
 # T
 
