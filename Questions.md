@@ -90,3 +90,9 @@
 ## Characters:
 1. He looks like Clyde Barrow (Jeremy Jordan Version) so he kinda adopted the name.
 2. Well, his main form is Clyde Barrow (Jeremy Jordn Version), lol. But he can change it. Ofc the Clyde Barrow form isnt his original but no one has ever seen his og form.
+3. Yes, he can. 
+4. No he does know everything that happens everywhere, which is why he can be an multiple places at once.
+5. Yes.
+6. No, he can just… make himself exist.
+7. Because Jamie is a kid and he‘s very easy to get.
+8. 
