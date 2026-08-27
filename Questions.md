@@ -171,4 +171,13 @@
 81. Peter is Janson‘s uncle, and the one he grew up with after his parents died.
 82. Reeves is the Director of the Los Angeles ARA Branch…
 83. They have beef.
-84. He is equal to Janson but with fewer r
+84. He is equal to Janson but with fewer resources.
+85. Lets just say u dont wanna fuck with Reeves.
+86. Yes.
+87. U.S Military.
+88. Close, at least with the NYC branch due to her history with Janson.
+89. They met but never really anything else.
+90. Nope.
+91. She is strict and doesnt like to be fucked with (that sounds wrong)
+92. Agent of ARA.
+93. ARA.
