@@ -180,4 +180,10 @@
 90. Nope.
 91. She is strict and doesnt like to be fucked with (that sounds wrong)
 92. Agent of ARA.
-93. ARA.
+93. ARA, specifically the Los Angeles Branch.
+94. Pretty good??
+95. He heard of Janson and Voss but never met them. And Reeves is his superior.
+96. He is very morally grey and does shady shit not even ARA knows about.
+97. Two years older than Korra.
+98. He is the ARA agent who was set to keep an eye on Jeremy.
+99. 
