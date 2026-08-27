@@ -54,4 +54,5 @@
 16. Yeah, where would be the fun (punwise) if not?
 17. Yes and/or no.
 18. I would vaguely say yes.
-19. 
+19. Yes, and no it doesnt effect each other. I was about to constrast it to Quantum immortality— WAIT NO THIS IS QUANTUM IMMORTALITY!!!!!
+20. Yes, that is possible. Take Winn Schott from Supergirl as an example: in his original universe he is Winn, in another he is General Schott who commits suicid
