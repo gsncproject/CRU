@@ -5,6 +5,8 @@
 - Full Name: Kyra Diana Aldun
 - Aliases: Agent Aldun, K
 - Birthday: February 27th 1999
+- Birthplace: Marlton, NJ
+- Age: 25 (2024); 26 (2025)
 - Residence: [[New York City, NY (CRU)]]
 - Occupation: Field Agent at [[Regional Headquarters New York City]]
 - Status: Alive
