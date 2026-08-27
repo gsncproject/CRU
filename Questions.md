@@ -271,10 +271,15 @@
 		8. Winn 
 		9. Sam 
 		10. Buck 
+		11. Sage
 	2. Antagonists:
 		1. Oscar 
 		2. Winston 
 		3. John 
 		4. Clyde (obvi)
 		5. Ben 
-		6. 
+		6. Richard 
+		7. Reeves 
+		8. Voss 
+		9. (Janson)
+	3. (The rest is bg or side)
