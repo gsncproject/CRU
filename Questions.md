@@ -231,3 +231,12 @@
 141. They have a very close relationship.
 142. Yes, Hayden is Kierans big sister. 
 143. Hayden serves as Kierans emotionally anker, because she raised him and she is the person he trusts most.
+144. Its a her and she is super kind but can be strict.
+145. Dunno.
+146. Hayden is his sister.
+147. Kieran is the main character and narrator of ATGTT.
+148. ATGTT and WOT.
+149. Maurice is Johns father.
+150. John Curtis is the cold hearted antagonist who pretty much is hard to kill.
+151. Tf, no he isnt related to Ponyboy, lol-
+152. Cold, brut
