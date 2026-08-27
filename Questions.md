@@ -141,4 +141,9 @@
 51. She loves to research.
 52. no.
 53. No, she doesnt know hes a real person.
-54. Yeah, she knows they have this sister-brother relationship because she is the cause for 
+54. Yeah, she knows they have this sister-brother relationship because she is the cause for it.
+55. No.
+56. Yes.
+57. Winn hates the name Winston and because his mom (Claire Madison) called him that all his life.
+58. They have known each other since middle school and had been very close friends since. And eventually during Freshmen year he got a crush on her.
+59. Jamie‘s death doesnt hit him as hard, but it does hit him. He knew Jamie, and he knew that Jamie was Sam‘s brother b
