@@ -110,4 +110,8 @@
 20. The typical older-younger-sibling stuff, but Sam was pretty jealous of Jamie because he got more attention from their mom due to his „special needs“
 21. No.
 22. No.
-23. She hears someone call her by the nickname only Jamie called her „
+23. She hears someone call her by the nickname only Jamie called her „Amzy“
+24. Yes, she does.
+25. No.
+26. No.
+27. Sounds mean but Jamie was her favp
