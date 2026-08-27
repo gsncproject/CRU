@@ -214,4 +214,11 @@
 124. ATGTT.
 125. Manipulative.
 126. Hes his dadddddd.
-127. Zander is the second „director“ of MAC alo
+127. Zander is the second „director“ of MAC alongside John Curtis. So hes an antagonist
+128. Yes.
+129. Manipulative, but not cold hearted.
+130. She is the mother of Winn and the wife of Étienne.
+131. Clara belongs to TJTC.
+132. Winn is her son. Étienne is her husband.
+133. She is kind, warm hearted and caring. She starts taking care of Mary Ta
+134. 
