@@ -125,4 +125,13 @@
 35. Yes.
 36. He tries to protect his career and also because he is scared of the truth coming out.
 37. It was just an escalation, but in a way intended too.
-38. 
+38. Yes and no.
+39. Yes he does.
+40. No.
+41. Richard is the uncle of Dylan. 
+42. Long lost cousins or something, je ne sais pas-
+43. Well, their dad is in prison and their mom is an alcoholic.
+44. Doesnt know him.
+45. Yes, due to Jeremy writing it, lol
+46. Nope.
+47. Loenna meets Jeremy due to Korra who had been friends with Jeremy since 
