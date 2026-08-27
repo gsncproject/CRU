@@ -34,3 +34,7 @@
 	4. Jamie‘s death is publicly known, but it isnt publicly known who killed him (thats why tjtc)
 	5. (and i dont know more, welp)
 21. To all ur listed questions: YES HELL FUCKING YES
+
+## Death Factor:
+1. A, C, D
+2. 
