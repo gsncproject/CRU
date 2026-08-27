@@ -163,4 +163,7 @@
 73. If it were only her decision she‘d destroy MAC yesterday.
 74. Yes.
 75. No.
-76. 
+76. He has the repuation of gaining his status in ARA through morally grey action.
+77. Who the fuck is that? I have no Wynn Shepard…
+78. …
+79. He knows that back in 1988 Clyde was trapped in an object that then broke and caused havoc that caused JAnson to murder Director Howard Beckham, because pr
