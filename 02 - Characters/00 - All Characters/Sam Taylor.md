@@ -16,7 +16,7 @@ Sam is capable and independent, but her relationship with Jamie is complicated b
 Not established.
 ## Biography
 Sam Taylor is the older sister of [[Jamie Taylor]] and daughter of [[Mary Taylor]] and [[James Taylor Senior]]. Before Jamie's death, she has the typical older-younger-sibling relationship with him. She is jealous at times because Mary focuses more attention on Jamie, but she loves him.
-After Jamie's death, Sam is devastated. She becomes determined to discover what happened because [[Director Richard Thornton]] hides the evidence that he killed Jamie.
+After Jamie's death, Sam is devastated. She becomes determined to discover what happened because [[Detective Richard Thornton]] hides the evidence that he killed Jamie.
 In [[The Jamie Taylor Case - Overview|The Jamie Taylor Case]], Sam investigates with her best friend [[Winston Desjardins]] and new student [[Wren Carter]]. She initially does not believe that ghosts exist and interprets the first sign from Jamie as a possible coping mechanism. She eventually realizes Jamie is actually communicating with her when she hears him call her **Amzy**, the nickname only Jamie used for her.
 Sam comes to believe Jamie is giving her signs to help solve his death. She eventually learns that Jamie's ghost is real, although she never encounters Clyde directly.
 ## Relationships
