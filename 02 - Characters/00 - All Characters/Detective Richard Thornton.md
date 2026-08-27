@@ -1,6 +1,6 @@
 #cru
 
-# Director Richard Thornton
+# Detective Richard Thornton
 ## Basic Information
 - Full Name: Richard Thornton
 - Aliases: Detective Richard Thornton; Detective Thornton
