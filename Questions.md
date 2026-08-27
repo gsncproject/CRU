@@ -105,4 +105,6 @@
 15. Well, Thornton tried to talk Jamie down, because he found Jamie at Sunders Bridge thinking the kid was gonna kill himself, then Jamie charges at him after Clyde said he should, he gets hold of Thorntons gun, and the stuff just evolves… the wrangle and Thornton gets his gun back and shoots Jamie, hitting him in the side of his neck.
 16. Yes, he does.
 17. No.
-18. 
+18. Jamie believes that Clyde is an imaginary friend 
+19. She is seventeen years old.
+20. The typical older-younger-sibling stuff, but Sam was pretty jealous of Jamie because he got mo
