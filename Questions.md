@@ -285,3 +285,7 @@
 	3. (The rest is bg or side)
 
 ## MOREEEEEE
+1. Well, Ben is offically a lawyer, which he truly is but he also knows about ARA and MAC and work pretty close with MAC. He knows about Clyde.
+2. B.
+3. Sages mom is unknown but Janson knows Sage is his daughter and Sage knows Janson is her father.
+4. Yes. He protects her. ANd then he joins Lab Four Group in WOT…
