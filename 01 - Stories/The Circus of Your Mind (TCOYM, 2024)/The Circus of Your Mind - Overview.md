@@ -8,16 +8,8 @@ aliases:
 # The Circus of Your Mind
 
 ## Premise
-OKAY, i would want them be a playwrite. or author any of that kind. they should be a young adult (mid twenties). and like Barrie they are looking for a completely new story… theyre pretty popular for earlier plays/books they wrote but they need something completely different. and i feel like they should live somehwere in europe. maybe uk.
+[[Jeremy Cade]] is a successful young playwright/author living in the UK who is searching for a completely new story. He does not realize that the stories he writes are actually based on real events and people in the USA. While writing Jamie Taylor's story, Jeremy unknowingly writes about a real person and begins seeing Jamie in his dreams. [[Clyde Barrow (CRU)]] also appears to Jeremy and wants Jeremy to write Jamie's story.
 
-Maybe let [[Clyde Barrow (CRU)]] appear too but not as Clyde-Clyde disguse him as something else. NOPE, Clyde stays Clyde and thats the end of conversation.
-
-MC idea:
-- mid-twenties (25-28 yrs)
-- lives in the UK (London or York)
-- they‘re a playwrite/novelist/screenwriter
-- got to successful too early 
-- they look for a new idea, an original one 
 ## Main Cast
 - [[Jeremy Cade]]
 - [[Clyde Barrow (CRU)]]
@@ -30,6 +22,8 @@ MC idea:
 - [[Jamie Taylor]]
 
 ## Timeline Placement
+- August 2024
+- Happens simultaneously with [[Clyde Rules - Overview|Clyde Rules]].
 
 ## Locations
 The entire story plays in [[London, UK (CRU)]]
@@ -38,20 +32,22 @@ The entire story plays in [[London, UK (CRU)]]
 - [[London Bridge (CRU)]]
 - [[Corner Café]]
 - [[London High School]]
+- Clyde's dream-theater, an experience created by Clyde inside Jeremy's mind. Its appearance most closely resembles Radio City Music Hall with a twist inspired by the Pantheon.
 
 ## Plot Summary
+Jeremy searches for a new story and begins writing about Jamie Taylor without knowing Jamie is a real person whose story is happening in the USA. Jamie consequently begins appearing in Jeremy's dreams. Clyde also appears and pushes Jeremy toward writing Jamie's story. Jeremy tries to understand what Clyde is and becomes increasingly obsessed with the supernatural mystery. [[Loenna Thornton]], a seventeen-year-old theater kid who lives with her older sister [[Korra Thornton]], provides an important personal connection and frequently bickers with Jeremy like a younger person with an older-brother figure.
 
 ## Themes
+- Reality and fiction
+- Dreams and hallucinations
+- Supernatural phenomena
+- Storytelling
+- Obsession
+- The relationship between writer and subject
 
 ## Notes
-- [[Scene 1 - TCOYM - Opening Scene?]]
-- [[Scene 2 - TCOYM - Dream-Theater 1 aka Clyde‘s Entrance]]
-- [[Scene 3 - TCOYM - Jeremy & Loenna]]
-- [[Scene 4 - TCOYM - Loenna‘s High School]]
-- [[Scene 5 - TCOYM - London Bridge aka Jeremy trying interviews]]
-- [[Scene 6 - TCOYM - Jeremy meets Finn]]
-- [[Scene 7 - TCOYM - Finn & Jeremy]]
-- [[Scene 8 - TCOYM - Dream 2]]
-- [[Scene 9 - TCOYM - Dream 3]]
-- [[Scene 10 - TCOYM - Jeremy going feral trying to figure out what Clyde is]]
-- [[Scene 11 - TCOYM - Jeremy explaining Korra his play]]
+- Jeremy does not initially know that the story he is writing concerns a real person.
+- Clyde remains Clyde in TCOYM; he is not secretly disguised as another character.
+- The dream-theater is created by Clyde inside Jeremy's head.
+- Loenna is Jeremy's significant teenage friend and biggest critic; she sees him as something like an older brother.
+- Korra is Loenna's older sister and a journalist.
