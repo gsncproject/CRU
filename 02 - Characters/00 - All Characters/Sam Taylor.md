@@ -32,7 +32,7 @@ Sam comes to believe Jamie is giving her signs to help solve his death. She even
 - [[Clyde Rules - Overview|Clyde Rules]]
 ## Trivia
 - Born December 24th, 2007 in White Plains, New York.
-- She is seventeen during TJTC? No — she is 16 in 2024.
+- She is sixteen during TJTC in 2024.
 - "Amzy" is the nickname only Jamie used for her.
 - Sam initially thinks Jamie's apparent signs are a coping mechanism.
 - She eventually believes Jamie is actually communicating with her.
