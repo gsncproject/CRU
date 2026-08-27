@@ -86,3 +86,6 @@
 48. Yes.
 49. Well the body is gone but the persons consciousness not.
 50. It is something u can fuck with but no one really knows how to do it right.
+
+## Characters:
+1. 
