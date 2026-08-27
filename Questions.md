@@ -50,5 +50,8 @@
 12. No they cant forget.
 13. Ofc they can! Why wouldn‘t they????????
 14. Take Clyde as an example and ull get the answer yes. He can impersonate people. And in TJTC he impersonates Jamie at some point.
-15. Yeah, resurrection is possible. Just like its possible that Dean Winchester died and was resurrected like 170 times in 15 years.
-16. 
+15. Yeah, resurrection is possible. Just like its possible that Dean Winchester died and was resurrected like 170 times in 15 years. So yeah, resurrection is something supernatural/paranormal
+16. Yeah, where would be the fun (punwise) if not?
+17. Yes and/or no.
+18. I would vaguely say yes.
+19. 
