@@ -225,3 +225,9 @@
 135. Yes.
 136. Buck is obsessed with the historical verison of Clyde Barrow and he just came up with Buck because of BUCHanan and because Clydes brothers name was Buck.
 137. He is the main character and due to his obsession with Clyde he starts seeing Clyde. And he is also one of the few victims of clyde that survive.
+138. Ben Buchanan is his father and Elisa Buchanan is his mother. They all have a good relationship.
+139. Extended fam.
+140. He tries to imitate historical Clyde. He is obsessed with building a legacy because he wants to be remembered after he dies.
+141. They have a very close relationship.
+142. Yes, Hayden is Kierans big sister. 
+143. Hayden serves as Kierans emotionally anker, because she raised him and she is the person he trusts most.
