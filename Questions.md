@@ -220,5 +220,8 @@
 130. She is the mother of Winn and the wife of Étienne.
 131. Clara belongs to TJTC.
 132. Winn is her son. Étienne is her husband.
-133. She is kind, warm hearted and caring. She starts taking care of Mary Ta
-134. 
+133. She is kind, warm hearted and caring. She starts taking care of Mary Taylor after Jamies death, because she knows Sam cant do it on her own.
+134. No.
+135. Yes.
+136. Buck is obsessed with the historical verison of Clyde Barrow and he just came up with Buck because of BUCHanan and because Clydes brothers name was Buck.
+137. He is the main character and due to his obsession with Clyde he starts seeing Clyde. And he is also one of the few victims of clyde that survive.
