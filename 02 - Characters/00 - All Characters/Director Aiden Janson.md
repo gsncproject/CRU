@@ -1,6 +1,6 @@
 #cru
 
-# Director Aiden Janson (CRU)
+# Director Aiden Janson
 ## Basic Information
 - Full Name: Aiden Janson
 - Aliases: Janson
@@ -17,7 +17,7 @@ Janson is an authority figure within the ARA and is intimidating to people who w
 No detailed physical description is currently established in the available CRU material.
 
 ## Biography
-Aiden Janson, usually referred to simply as Janson, is the Director of the New York City Branch of the [[Alien Research Agency]]. The NYC branch operates beneath the Washington Branch, which is headed by [[Elena Rostova]].
+Aiden Janson, usually referred to simply as Janson, is the Director of the New York City Branch of the [[Alien Research Agency]]. The NYC branch operates beneath the Washington Branch, which is headed by [[Director-General Elena Rostova]].
 
 Janson is one of the reasons [[Clyde Barrow (CRU)]] now exists. His involvement with the events surrounding Clyde is therefore significant to the wider supernatural history of the CRU, although the exact mechanism and circumstances have not yet been fully established.
 
@@ -26,9 +26,9 @@ In [[Origins - Overview|Origins]], Janson encounters a Clyde-like entity at an e
 Janson also appears in the wider events of [[A Techies Guide to Trouble - Overview|A Techies Guide to Trouble]] and [[Weight of Tomorrow - Overview|Weight of Tomorrow]], where his role is connected to the ARA and its operations.
 
 ## Relationships
-- [[Elena Rostova]] — superior; directs the Washington Branch above Janson's NYC branch
+- [[Director-General Elena Rostova]] — superior; directs the Washington Branch above Janson's NYC branch
 - [[Clyde Barrow (CRU)]] — Janson is one of the reasons Clyde exists; their connection is central to the supernatural history of CRU
-- [[Wynn Shepard]] — ARA tech intern connected to Janson's NYC branch; Wynn is intimidated by Janson and wants to prove himself to him
+- [[Kieran Jamie Shaw]] — ARA tech intern connected to Janson's NYC branch; Kieran is intimidated by Janson and wants to prove himself to him
 - [[Director Howard Beckham]] — connected to the Clyde entity through the entity's ability to assume Beckham's appearance
 
 ## Story Appearance
@@ -39,6 +39,6 @@ Janson also appears in the wider events of [[A Techies Guide to Trouble - Overvi
 ## Trivia
 - Janson is the Director of the NYC Branch of the ARA.
 - The Washington Branch is above the NYC Branch, with Elena Rostova above Janson.
-- Wynn Shepard is scared of Janson and wants to prove himself to him.
+- Kieran Shaw is scared of Janson and wants to prove himself to him.
 - Janson's connection to Clyde is one of the major unresolved pieces of CRU lore.
 - Janson's exact role in Clyde's creation/existence has not yet been fully explained.

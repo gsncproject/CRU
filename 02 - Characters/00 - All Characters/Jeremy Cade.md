@@ -1,6 +1,6 @@
 #cru
 
-# Jeremy Cade (CRU)
+# Jeremy Cade
 ## Basic Information
 - Full Name: Jeremy Cade
 - Aliases: None established
@@ -21,7 +21,7 @@ No detailed physical description is currently established in the available CRU m
 ## Biography
 Jeremy Cade is a playwright living in the UK. His unusual connection to the events of [[The Circus of Your Mind - Overview|The Circus of Your Mind]] begins with his writing. Jeremy writes plays without realizing that the stories he creates are based on real events occurring in the United States.
 
-While writing the story of [[Jamie Taylor (CRU)]], Jeremy begins experiencing dreams involving Jamie. He initially has no reason to understand that Jamie is a real person. [[Clyde Barrow (CRU)]] also begins appearing to Jeremy and deliberately pushes him toward writing Jamie's story.
+While writing the story of [[Jamie Taylor]], Jeremy begins experiencing dreams involving Jamie. He initially has no reason to understand that Jamie is a real person. [[Clyde Barrow (CRU)]] also begins appearing to Jeremy and deliberately pushes him toward writing Jamie's story.
 
 Clyde's manifestations to Jeremy occur through dreams and a strange dream-theater created inside Jeremy's mind. The theatre resembles a distorted version of Radio City Music Hall combined with the Pantheon.
 
@@ -31,7 +31,7 @@ Jeremy later crosses into the events of [[Weight of Tomorrow - Overview|Weight o
 
 ## Relationships
 - [[Clyde Barrow (CRU)]] — supernatural entity that appears to Jeremy and wants him to write Jamie's story
-- [[Jamie Taylor (CRU)]] — real person whose story Jeremy unknowingly writes about and whom he encounters through dreams
+- [[Jamie Taylor]] — real person whose story Jeremy unknowingly writes about and whom he encounters through dreams
 - [[Loenna Thornton]] — close friend; Loenna sees Jeremy as something like an older brother and frequently bickers with him
 - [[Korra Thornton]] — Loenna's older sister; connection to Jeremy established through Loenna
 
