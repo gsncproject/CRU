@@ -88,4 +88,5 @@
 50. It is something u can fuck with but no one really knows how to do it right.
 
 ## Characters:
-1. 
+1. He looks like Clyde Barrow (Jeremy Jordan Version) so he kinda adopted the name.
+2. Well, his main form is Clyde Barrow (Jeremy Jordn Version), lol. But he can change it. Ofc the Clyde Barrow form isnt his original but no one has ever seen his og form.
