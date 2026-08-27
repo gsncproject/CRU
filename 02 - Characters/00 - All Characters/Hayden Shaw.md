@@ -5,6 +5,8 @@
 - Full Name: Hayden Zoey Shaw
 - Aliases: None established
 - Birthday: August 29th 1987
+- Birthplace: Manhattan, NY
+- Age: 37 (2024); 38 (2025)
 - Residence: [[New York City, NY (CRU)]]
 - Occupation: Broadway Actress
 - Status: Alive
