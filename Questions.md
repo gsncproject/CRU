@@ -114,4 +114,6 @@
 24. Yes, she does.
 25. No.
 26. No.
-27. Sounds mean but Jamie was her favp
+27. Sounds mean but Jamie was her favorite kid, but also the one who needed her most due to his neurodivergance. Jamie trusted her a lot, and Mary trusted him.
+28. Mary knows that Sam can handle herself so she put more focus on her little boy than Sam.
+29. She breaks completely down. She starts blaming herslef,
