@@ -7,7 +7,7 @@
 - Birthday: March 14th 1997
 - Birthplace: Cambridge, United Kingdom
 - Age: 27 in 2024
-- Residence: United Kingdom; exact location unknown
+- Residence: [[London, UK (CRU)]]
 - Occupation: Playwright / theatre writer
 - Status: Alive
 

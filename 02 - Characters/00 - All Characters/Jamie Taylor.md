@@ -19,7 +19,7 @@ Jamie is a small boy with blonde, curly hair. He wears a hoodie and often fidget
 ## Biography
 Jamie is the younger son of [[Mary Taylor]] and [[James Taylor Senior]], and the younger brother of [[Sam Taylor]]. His father, an NYC police officer, died in action when Jamie was two years old. James's death leaves Jamie especially in need of a fatherly figure.
 About a year before his death, Jamie is bullied at school because of his ADHD and dyslexia and is locked in a storage room. Clyde first appears to him during this experience. Jamie believes Clyde is an imaginary friend. Clyde deliberately chooses Jamie because he is a child who desperately needs someone to talk to and is easy to manipulate.
-Jamie becomes deeply attached to Clyde and comes to trust him above everyone else. Clyde eventually influences Jamie into attacking [[Director Richard Thornton]]. Thornton finds Jamie at Sunders Bridge, believing the child is about to kill himself, and tries to talk him down. Clyde tells Jamie to attack Thornton. Jamie charges at him and gets hold of Thornton's gun. During the resulting struggle Thornton regains the gun and shoots Jamie in the side of the neck.
+Jamie becomes deeply attached to Clyde and comes to trust him above everyone else. Clyde eventually influences Jamie into attacking [[Detective Richard Thornton]]. Thornton finds Jamie at Sunders Bridge, believing the child is about to kill himself, and tries to talk him down. Clyde tells Jamie to attack Thornton. Jamie charges at him and gets hold of Thornton's gun. During the resulting struggle Thornton regains the gun and shoots Jamie in the side of the neck.
 Jamie blames Richard for his death but does not blame himself. After death, Jamie can exist as a ghost; his post-death consciousness is real, although the exact point at which he becomes a ghost is not yet established.
 ## Relationships
 - [[Clyde Barrow (CRU)]] — supernatural entity; Jamie believes Clyde is his imaginary friend and becomes deeply attached to him
@@ -27,7 +27,7 @@ Jamie blames Richard for his death but does not blame himself. After death, Jami
 - [[Mary Taylor]] — mother; Jamie is her favorite child and trusts her deeply
 - [[James Taylor Senior]] — father; died in action when Jamie was two
 - [[Jeremy Cade]] — encounters Jamie through TCOYM's dream phenomena
-- [[Director Richard Thornton]] — kills Jamie after Jamie attacks him
+- [[Detective Richard Thornton]] — kills Jamie after Jamie attacks him
 ## Story Appearance
 - [[Clyde Rules - Overview|Clyde Rules]] — protagonist
 - [[The Circus of Your Mind - Overview|The Circus of Your Mind]]
