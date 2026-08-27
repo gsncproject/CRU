@@ -55,4 +55,12 @@
 17. Yes and/or no.
 18. I would vaguely say yes.
 19. Yes, and no it doesnt effect each other. I was about to constrast it to Quantum immortality— WAIT NO THIS IS QUANTUM IMMORTALITY!!!!!
-20. Yes, that is possible. Take Winn Schott from Supergirl as an example: in his original universe he is Winn, in another he is General Schott who commits suicid
+20. Yes, that is possible. Take Winn Schott from Supergirl as an example: in his original universe he is Winn, in another he is General Schott who commits suicide, in another he is a murderer like his father, in again another he is the foster parent of Kara‘s son. So yeah, alt. versions of characters exist but theyre never the same.
+21. Yes.
+22. Yes.
+23. No, theyre seperate individuals.
+24. No, he cannot.
+25. Yes he can, but he never does (so far).
+26. YES.
+27. Yes.
+28. Yes, e.g. Jerm
