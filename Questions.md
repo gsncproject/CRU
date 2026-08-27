@@ -39,4 +39,7 @@
 1. A, C, D
 2. Yes, I wouldnt say that science detected it, but due to ARA research and inhumanly experimences conducted by MAC they found souls do exist.
 3. Yes.
-4. I would say but it depends on the person. For examp
+4. I would say but it depends on the person. For example I planed for Sam in TJTC to think/believe that Jamie is giving her signs to solve his death.
+5. OHHHHH, it depends on factors. If u die naturally it can be really anything, u could exist on earth or idk go meet God or Satan. And then there is Clyde… if u die because of him ur basically trapped on earth.
+6. Theoratically everyone can become a ghost.
+7. If ur not trapped by Clyde u can choose if u want 
