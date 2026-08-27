@@ -52,6 +52,7 @@ Jamie and Sage eventually pursue the two leaders of the [[Marble Arch Council]],
 - [[A Techies Guide to Trouble - Overview|A Techies Guide to Trouble]]
 - [[Weight of Tomorrow - Overview|Weight of Tomorrow]]
 ## Trivia
+- Jamie's birthday is October 21st, 2004.
 - Jamie is left-handed.
 - Jamie is an absolute theater kid.
 - Hayden took him along to her performances when he was a child.
