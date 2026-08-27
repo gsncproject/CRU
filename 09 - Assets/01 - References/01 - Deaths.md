@@ -4,9 +4,9 @@
 
 ## Confirmed Deaths
 
-| Character | Date | Cause of Death | Responsible Party | Story | Publicly Known? |
-|---|---|---|---|---|---|
-| [[Jamie Taylor]] | August 2024 | Killed after attempting to kill [[Richard Thornton]] | [[Richard Thornton]] | [[Clyde Rules - Overview|Clyde Rules]] | Yes — Jamie's death is known, but Richard's responsibility is not publicly known |
+| Character        | Date        | Cause of Death                                                 | Responsible Party              | Story                                   | Publicly Known?                                                                  |
+| ---------------- | ----------- | -------------------------------------------------------------- | ------------------------------ | --------------------------------------- | -------------------------------------------------------------------------------- |
+| [[Jamie Taylor]] | August 2024 | Killed after attempting to kill [[Detective Richard Thornton]] | [[Detective Richard Thornton]] | [[Clyde Rules - Overview\|Clyde Rules]] | Yes — Jamie's death is known, but Richard's responsibility is not publicly known |
 
 ## Unknown / To Be Established
 - Additional deaths from [[Origins - Overview|Origins]] and other stories need to be documented as they are confirmed.
