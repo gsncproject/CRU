@@ -107,4 +107,7 @@
 17. No.
 18. Jamie believes that Clyde is an imaginary friend 
 19. She is seventeen years old.
-20. The typical older-younger-sibling stuff, but Sam was pretty jealous of Jamie because he got mo
+20. The typical older-younger-sibling stuff, but Sam was pretty jealous of Jamie because he got more attention from their mom due to his „special needs“
+21. No.
+22. No.
+23. She hears someone call her by the nickname only Jamie called her „
