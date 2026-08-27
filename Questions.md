@@ -186,4 +186,12 @@
 96. He is very morally grey and does shady shit not even ARA knows about.
 97. Two years older than Korra.
 98. He is the ARA agent who was set to keep an eye on Jeremy.
-99. 
+99. Jeremy is his target in a non-lethal way.
+100. He is bad at lying.
+101. No.
+102. No.
+103. Yes.
+104. Because of what happened in ICFI.
+105. Sam and Winn talk and sit together at lunch and Wren just joins them.
+106. She likes mysteries.
+107. 
