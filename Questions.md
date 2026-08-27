@@ -146,4 +146,8 @@
 56. Yes.
 57. Winn hates the name Winston and because his mom (Claire Madison) called him that all his life.
 58. They have known each other since middle school and had been very close friends since. And eventually during Freshmen year he got a crush on her.
-59. Jamie‘s death doesnt hit him as hard, but it does hit him. He knew Jamie, and he knew that Jamie was Sam‘s brother b
+59. Jamie‘s death doesnt hit him as hard, but it does hit him. He knew Jamie, and he knew that Jamie was Sam‘s brother but they werent close.
+60. Yes.
+61. No.
+62. Yes, cuz he starts seeing him too (TJTC is in Winn‘s POV)
+63. They clash a lot. Étienne always makes sure that Winn doenst do shit because of their „immigrant“ status. Tho, Winn already has the green card but Étienne doesnt. Étienne also always wants to talk French at home but Winn hates it.
