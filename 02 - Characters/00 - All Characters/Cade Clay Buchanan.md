@@ -8,19 +8,24 @@
 - Birthplace: San Francisco, CA
 - Age (2024): 15
 - Residence: Not established
-- Occupation: Not established
-- Status: Alive / current status otherwise not established
+- Occupation: Student
+- Status: Alive; surviving victim of Clyde
 ## Personality
-Not established in the current CRU material.
+Cade is deeply obsessed with the historical Clyde Barrow. He deliberately imitates Clyde and is obsessed with building a legacy because he wants to be remembered after he dies.
 ## Appearance
-Not established.
+Not fully established.
 ## Biography
-Cade Clay Buchanan is a CRU character known by the nickname **Buck Buchanan**. Further biographical details have not yet been established.
+Cade Clay Buchanan, usually called Buck Buchanan, is the protagonist of [[Remember Me - Overview|Remember Me]]. His obsession with the historical Clyde Barrow leads him to begin seeing the supernatural [[Clyde Barrow (CRU)]]. He becomes one of the few known victims of Clyde to survive.
 ## Relationships
-- [[Ben Buchanan]] — family relationship implied by the Buchanan family grouping; exact relationship not yet established.
+- [[Ben Buchanan]] — father
+- [[Elisa Buchanan]] — mother
+- [[Clyde Barrow (CRU)]] — supernatural entity connected to his experiences
 ## Story Appearance
-Not yet sufficiently established in the available story material.
+- [[Remember Me - Overview|Remember Me]] — protagonist
 ## Trivia
-- His actual name is **Cade Clay Buchanan**.
-- **Buck Buchanan** is his nickname/alias.
-- Born in San Francisco, California.
+- His actual name is Cade Clay Buchanan.
+- Buck Buchanan is his nickname.
+- He chose Buck partly because of his surname and Buck Barrow, Clyde Barrow's brother.
+- He is obsessed with the historical Clyde Barrow and tries to imitate him.
+- He wants to build a legacy so he will be remembered after death.
+- He is one of the few victims of Clyde known to survive.
