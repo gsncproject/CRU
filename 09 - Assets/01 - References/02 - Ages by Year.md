@@ -6,53 +6,53 @@
 
 ## 2023
 
-| Character | Age |
-|---|---:|
-| [[Aiden Janson]] | 55–56 |
-| [[Michael Reeves]] | 62–63 |
-| [[Harry Beaumont]] | 45 |
-| [[Dennis Gatsby]] | 45 |
-| [[John Curtis]] | 49 |
-| [[Mila Gatsby]] | 46 |
-| [[Wayne Bourne]] | 52–53 |
-| [[Mary Taylor]] | 44–45 |
-| [[Ariana Voss]] | 41 |
-| [[Hayden Shaw]] | 35–36 |
-| [[Jeremy Cade]] | 26 |
-| [[Corey Gatsby]] | 26 |
-| [[Kieran Jamie Shaw]] | 18–19 |
-| [[Kyra Aldun]] | 24 |
-| [[Mikey Johnson]] | 18 |
-| [[Keith Duz]] | 17 |
-| [[Wren Carter]] | 16–17 |
-| [[Winn Desjardins]] | 16–17 |
-| [[Jamie Taylor]] | 11 |
-| [[Sam Taylor]] | 15 |
+| Character                   |   Age |
+| --------------------------- | ----: |
+| [[Director Aiden Janson]]   | 55–56 |
+| [[Director Michael Reeves]] | 62–63 |
+| [[Agent Harry Beaumont]]    |    45 |
+| [[Dennis Gatsby]]           |    45 |
+| [[John Curtis]]             |    49 |
+| [[Mila Gatsby]]             |    46 |
+| [[Wayne Bourne]]            | 52–53 |
+| [[Mary Taylor]]             | 44–45 |
+| [[Lieutenant Ariana Voss]]  |    41 |
+| [[Hayden Shaw]]             | 35–36 |
+| [[Jeremy Cade]]             |    26 |
+| [[Corey Gatsby]]            |    26 |
+| [[Kieran Jamie Shaw]]       | 18–19 |
+| [[Kyra Aldun]]              |    24 |
+| [[Mikey Johnson]]           |    18 |
+| [[Keith Duz]]               |    17 |
+| [[Wren Carter]]             | 16–17 |
+| [[Winston Desjardins]]      | 16–17 |
+| [[Jamie Taylor]]            |    11 |
+| [[Sam Taylor]]              |    15 |
 
 ## 2024
 
-| Character | Age |
-|---|---:|
-| [[Aiden Janson]] | 56–57 |
-| [[Michael Reeves]] | 63–64 |
-| [[Harry Beaumont]] | 45–46 |
-| [[Dennis Gatsby]] | 46 |
-| [[John Curtis]] | 50 |
-| [[Mila Gatsby]] | 46–47 |
-| [[Wayne Bourne]] | 53–54 |
-| [[Mary Taylor]] | 45–46 |
-| [[Ariana Voss]] | 41–42 |
-| [[Hayden Shaw]] | 36–37 |
-| [[Jeremy Cade]] | 26–27 |
-| [[Corey Gatsby]] | 26–27 |
-| [[Kieran Jamie Shaw]] | 19–20 |
-| [[Kyra Aldun]] | 24–25 |
-| [[Mikey Johnson]] | 18–19 |
-| [[Keith Duz]] | 17–18 |
-| [[Wren Carter]] | 17–18 |
-| [[Winn Desjardins]] | 17–18 |
-| [[Jamie Taylor]] | 11–12 |
-| [[Sam Taylor]] | 16–17 |
+| Character                   |   Age |
+| --------------------------- | ----: |
+| [[Director Aiden Janson]]   | 56–57 |
+| [[Director Michael Reeves]] | 63–64 |
+| [[Agent Harry Beaumont]]    | 45–46 |
+| [[Dennis Gatsby]]           |    46 |
+| [[John Curtis]]             |    50 |
+| [[Mila Gatsby]]             | 46–47 |
+| [[Wayne Bourne]]            | 53–54 |
+| [[Mary Taylor]]             | 45–46 |
+| [[Lieutenant Ariana Voss]]  | 41–42 |
+| [[Hayden Shaw]]             | 36–37 |
+| [[Jeremy Cade]]             | 26–27 |
+| [[Corey Gatsby]]            | 26–27 |
+| [[Kieran Jamie Shaw]]       | 19–20 |
+| [[Kyra Aldun]]              | 24–25 |
+| [[Mikey Johnson]]           | 18–19 |
+| [[Keith Duz]]               | 17–18 |
+| [[Wren Carter]]             | 17–18 |
+| [[Winn Desjardins]]         | 17–18 |
+| [[Jamie Taylor]]            | 11–12 |
+| [[Sam Taylor]]              | 16–17 |
 
 ## 2025
 
