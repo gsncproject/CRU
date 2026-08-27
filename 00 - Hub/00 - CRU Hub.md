@@ -30,14 +30,14 @@
 	- [[Spain (CRU)]]
 - **States**:
 	- **United States of America**:
-		- New York — Albany *(mentioned/used in CRU)*
-		- California — Sacramento *(mentioned/used in CRU)*
-		- Oklahoma — Oklahoma City *(mentioned/used in CRU)*
-		- Texas — Austin *(mentioned/used in CRU)*
+		- [[New York (CRU)]]
+		- [[California (CRU)]]
+		- Oklahoma
+		- Texas
 	- **United Kingdom — Constituent Countries**:
-		- England — London *(mentioned/used in CRU)*
+		- [[England (CRU)]]
 	- **Spain — Autonomous Communities**:
-		- Catalonia — Barcelona *(mentioned/used in CRU)*
+		- [[Catalonia (CRU)]] 
 - **Cities**:
 	- [[New York City, NY (CRU)]]
 	- [[San Francisco, CA (CRU)]]
