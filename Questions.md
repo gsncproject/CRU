@@ -311,4 +311,4 @@
 6. He ran away from home in OHIOOOOOO at age 13 and now lives in Reseda illegally.
 7. Autumn 
 8. He is the protagonist and the narrator.
-9. 
+9. He is a teen that 
