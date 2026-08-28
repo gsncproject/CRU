@@ -1,4 +1,4 @@
-#cru
+#cru #tjtc #cr 
 
 # Detective Richard Thornton
 ## Basic Information
@@ -7,7 +7,7 @@
 - Birthday: February 13th, 1991
 - Birthplace: Moab, UT
 - Age (2024): 33
-- Residence: Northbridge, NY (established by story setting; exact residence not established)
+- Residence: [[Northbridge, NY (CRU)]] (established by story setting; exact residence not established)
 - Occupation: Detective
 - Status: Alive / current status otherwise not established
 ## Personality
@@ -23,6 +23,7 @@ His concealment becomes the central mystery of [[The Jamie Taylor Case - Overvie
 - [[Winston Desjardins]] — involved in investigating the concealed circumstances
 - [[Wren Carter]] — involved in investigating the concealed circumstances
 ## Story Appearance
+- [[Clyde Rules - Overview|Clyde Rules]] — main cast
 - [[The Jamie Taylor Case - Overview|The Jamie Taylor Case]] — main cast
 ## Trivia
 - Born February 13th, 1991 in Moab, Utah.
