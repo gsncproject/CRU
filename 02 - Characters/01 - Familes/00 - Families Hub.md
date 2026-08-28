@@ -13,9 +13,8 @@ A central index of the established families currently represented in CRU.
 - [[Cade Clay Buchanan]]
 - [[Ben Buchanan]]
 - [[Elisa Buchanan]]
-- [[Buck Buchanan]]
 
-> [[Remember Me]] establishes the Buchanan family house and includes Cade, Ben, and Elisa Buchanan.
+> [[Remember Me - Overview|Remember Me]] establishes the Buchanan family house and includes Cade, Ben, and Elisa Buchanan.
 
 ### [[Carter Family]]
 - [[Wren Carter]]
@@ -29,7 +28,7 @@ A central index of the established families currently represented in CRU.
 
 ### [[Desjardins Family]]
 - [[Étienne Desjardins]]
-- [[Winn Desjardins]]
+- [[Winston Desjardins|Winn Desjardins]]
 
 ## J–O
 
@@ -37,7 +36,7 @@ A central index of the established families currently represented in CRU.
 - [[Director Aiden Janson]]
 - [[Peter Janson]]
 
-> [[Origins]] establishes that Aiden lives with his uncle Peter Janson.
+> [[Origins - Overview|Origins]] establishes that Aiden lives with his uncle Peter Janson.
 
 ### [[Jensen Family]]
 - [[Curtis Jensen]]
@@ -45,7 +44,7 @@ A central index of the established families currently represented in CRU.
 - [[Darrel Jensen]]
 - Mrs. Jensen
 
-> [[Don‘t Forget]] establishes Mandy, Darrel, and Mrs. Jensen as Curtis Jensen's family.
+> [[Don‘t Forget - Overview|Don‘t Forget]] establishes Mandy, Darrel, and Mrs. Jensen as Curtis Jensen's family.
 
 ### [[Orlando Family]]
 - [[Robert Orlando]]
@@ -62,10 +61,10 @@ A central index of the established families currently represented in CRU.
 - [[Sam Taylor]]
 - [[Mary Taylor]]
 
-> [[Clyde Rules]] establishes the Taylor family house and Jamie, Sam, and Mary Taylor as members of the family.
+> [[Clyde Rules - Overview|Clyde Rules]] establishes the Taylor family house and Jamie, Sam, and Mary Taylor as members of the family.
 
 ### [[Thornton Family]]
-- [[Richard Thornton]]
+- [[Detective Richard Thornton]]
 - [[Dylan Thornton]]
 - [[Korra Thornton]]
 - [[Loenna Thornton]]
