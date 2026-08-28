@@ -6,12 +6,12 @@ This matrix tracks which characters are established as appearing in each CRU sto
 
 | Character                 |  OG | Autumn |  DF | TCOYM |  CR |  RM | TJTC | ATGTT | WOT | ICFI |
 | ------------------------- | --: | -----: | --: | ----: | --: | --: | ---: | ----: | --: | ---: |
-| [[Clyde Barrow (CRU)]]    |   ✓ |      — |   — |     ✓ |   ✓ |   — |    — |     — |   — |    — |
-| [[Jeremy Cade]]           |   — |      — |   — |     ✓ |   — |   — |    — |     ✓ |   ✓ |    — |
-| [[Jamie Taylor]]          |   — |      — |   — |     ✓ |   ✓ |   ✓ |    ✓ |     — |   — |    — |
+| [[Clyde Barrow (CRU)]]    |   ✓ |      — |   — |     ✓ |   ✓ |   ✓ |    ✓ |     — |   ✓ |    — |
+| [[Jeremy Cade]]           |   — |      — |   — |     ✓ |   — |   — |    — |     — |   ✓ |    — |
+| [[Jamie Taylor]]          |   — |      — |   — |     ✓ |   ✓ |   — |    ✓ |     — |   — |    — |
 | [[Sam Taylor]]            |   — |      — |   — |     — |   ✓ |   — |    ✓ |     — |   — |    — |
 | [[Richard Thornton]]      |   — |      — |   — |     — |   ✓ |   — |    ✓ |     — |   — |    — |
-| [[Wren Carter]]           |   — |      — |   — |     — |   ✓ |   — |    ✓ |     — |   — |    ✓ |
+| [[Wren Carter]]           |   — |      — |   — |     — |   — |   — |    ✓ |     — |   — |    ✓ |
 | [[Winn Desjardins]]       |   — |      — |   — |     — |   — |   — |    ✓ |     — |   — |    — |
 | [[Kieran Jamie Shaw]]     |   — |      — |   — |     — |   — |   — |    — |     ✓ |   ✓ |    — |
 | [[Kyra Aldun]]            |   — |      — |   — |     — |   — |   — |    — |     ✓ |   ✓ |    ✓ |
