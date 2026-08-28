@@ -2,17 +2,17 @@
 
 # A
 - [[Director Aiden Janson|Aiden Janson]]
-- Ariana Voss 
+- [[Lieutenant Ariana Voss]]
 - Aris Vance
 - Arthur Sterling
 - Autumn Price 
 # B
-- Ben Buchanan 
+- Ben Buchanan
 - Brian Lindon
 - Brian Wilski 
-- Buck Buchanan 
+-  [[Cade Clay Buchanan|Buck Buchanan]] 
 # C
-- Claire Madison
+- [[Claire Madison]]
 - [[Clyde Barrow (CRU)]]
 - [[Corey Gatsby]] 
 - Curtis Jensen
@@ -21,16 +21,16 @@
 - Darrel Jensen 
 - Dylan Thornton 
 # E
-- Elena Rostova
+- [[Director-General Elena Rostova]]
 - Elene Gabaraevi
 - Elisa Buchanan 
-- Étienne Desjardins
+- [[Étienne Desjardins]]
 # F
-- Felix Mercer 
-- Finn Kaelen 
+- [[Felix Mercer]] 
+- [[Finn Kaelen]]
 # G
 # H
-- Harry Beaumont 
+- Harry Beaumont
 - [[Hayden Shaw]] 
 - Howard Beckham
 # I
@@ -43,11 +43,11 @@
 # K 
 - Kade Bogart 
 - Keith Duz 
-- Korra Thornton 
+- [[Korra Thornton]]
 - [[Kyra Aldun]]
 # L 
 - Lee Mueller 
-- Loenna Thornton 
+- [[Loenna Thornton]] 
 # M
 - Mandy Jensen 
 - Malik Hart 
