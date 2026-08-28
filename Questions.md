@@ -321,4 +321,13 @@
 16. Je ne sais pas.
 17. Not good at all, thats why he ran away. He hated the life of being a rich brat.
 18. Nope.
-19. Yep, Autumn Price. A senior at 
+19. Yep, Autumn Price. A senior at his high school in Reseda.
+20. Autumns ex-boyfriend Daniel Carrick 
+21. Yeah, Harry Beaumont, Michael Reeves and John Curtis
+22. Nope.
+23. Yes.
+24. Yes.
+25. Yes.
+26. Not directly.
+27. /////
+28. Yeah to t
