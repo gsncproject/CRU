@@ -304,14 +304,15 @@
 
 # Kadeeeeeeee
 1. He is fifteen years old in [[Autumn - Overview|Autumn]] in 2023
-2. idfk
-3. Je ne sais pas.
-4. Brown hair, brown-green eyes.
-5. Quiet, sarcastic, chaotic, and sometimes an asshole
-6. He ran away from home in OHIOOOOOO at age 13 and now lives in Reseda illegally.
-7. Autumn 
-8. He is the protagonist and the narrator.
-9. He is a teen that ran away from home and since then lives in a motel in Reseda but also going to school there. He has a crush on Autumn Price, and eventually gets into some shit because Agent Harry Beaumont finds him to recruit him in a way.
-10. He gets recruited by Beaumont and then betrayed.
-11. He gets out.
-12. Yes. 
+2. idfk.
+3. Brown hair, brown-green eyes.
+4. Quiet, sarcastic, chaotic, and sometimes an asshole
+5. He ran away from home in OHIOOOOOO at age 13 and now lives in Reseda illegally.
+6. Autumn 
+7. He is the protagonist and the narrator.
+8. He is a teen that ran away from home and since then lives in a motel in Reseda but also going to school there. He has a crush on Autumn Price, and eventually gets into some shit because Agent Harry Beaumont finds him to recruit him in a way.
+9. He gets recruited by Beaumont and then betrayed.
+10. He gets out.
+11. Yes. 
+12. Well, not really. Except more trauma…
+13. 
