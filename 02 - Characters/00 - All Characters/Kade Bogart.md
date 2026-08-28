@@ -7,7 +7,7 @@
 - Birthday: March 19th, 2008
 - Birthplace: Dayton, Ohio, USA
 - Age: 15 in [[Autumn - Overview|Autumn]] (2023)
-- Residence: Reseda, Los Angeles, CA, USA
+- Residence: [[Reseda, CA (CRU)]]
 - Occupation: Student
 - Status: Alive
 - Role: Protagonist; narrator
@@ -31,15 +31,15 @@ Kade's real name is Kade Whittaker; "Kade Bogart" is an alias he uses.
 ## Relationships
 - [[Autumn Price]] — Kade has a crush on Autumn, who is a senior at his high school in Reseda.
 - [[Daniel Carrick]] — Autumn's ex-boyfriend; Kade dislikes him.
-- [[Harry Beaumont]] — ARA agent who recruits Kade and later betrays him.
-- [[Michael Reeves]] — Director of the Los Angeles ARA Branch; Kade knows him through the events of Autumn.
+- [[Agent Harry Beaumont]] — ARA agent who recruits Kade and later betrays him.
+- [[Director Michael Reeves]] — Director of the Los Angeles ARA Branch; Kade knows him through the events of Autumn.
 - [[John Curtis]] — Kade encounters him in connection with the events of Autumn.
 - [[Ruth Whittaker]] — Kade's mother.
 - [[Frank Whittaker]] — Kade's father.
 - [[Brody Whittaker]] — Kade's older brother, a successful lawyer in Detroit, Michigan.
 
 ## Organizations & Locations
-- [[ARA]] — Kade becomes involved with the Los Angeles Branch.
+- [[AR]] — Kade becomes involved with the Los Angeles Branch.
 - [[Reseda High School]] — Kade attends school here.
 - Reseda — Kade lives here illegally after running away from home.
 
