@@ -21,7 +21,7 @@ This matrix tracks which characters are established as appearing in each CRU sto
 | [[Oscar Zander]]          |   — |      — |   — |     — |   — |   — |    — |     ✓ |   — |    — |
 | [[John Curtis]]           |   ✓ |      — |   — |     — |   — |   — |    — |     ✓ |   ✓ |    — |
 | [[Winston Zander]]        |   — |      — |   — |     — |   — |   — |    — |     ✓ |   ✓ |    — |
-| [[Director Aiden Janson]] |   — |      — |   — |     — |   — |   — |    — |     ✓ |   ✓ |    — |
+| [[Director Aiden Janson]] |   ✓ |      — |   — |     ✓ |   — |   — |    — |     ✓ |   ✓ |    ✓ |
 | [[Loenna Thornton]]       |   — |      — |   — |     ✓ |   — |   — |    — |     — |   — |    — |
 | [[Korra Thornton]]        |   — |      — |   — |     ✓ |   — |   — |    — |     — |   — |    — |
 
