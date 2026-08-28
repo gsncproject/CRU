@@ -33,7 +33,7 @@ Clyde eventually influences Jamie into attacking [[Director Richard Thornton]] a
 
 In [[The Circus of Your Mind - Overview|The Circus of Your Mind]], Clyde appears through [[Jeremy Cade]]'s dreams and the strange dream-theater. Clyde wants Jeremy to write Jamie's story, while Jeremy does not realize that the events he is writing about are real. Clyde is therefore able to influence the story indirectly through Jeremy.
 
-In [[TJTC - Overview|The Theatrics of the Crime]], Clyde can impersonate Jamie and is encountered by people other than Jamie. [[Winston Desjardins]] also begins seeing Clyde.
+In [[The Theatrics of the Law - Overview|The Theatrics of the Law]], Clyde can impersonate Jamie and is encountered by people other than Jamie. [[Winston Desjardins]] also begins seeing Clyde.
 
 In [[Remember Me - Overview|Remember Me]], Clyde targets [[Cade Clay Buchanan]] (Buck Buchanan), who is obsessed with the historical Clyde Barrow and begins seeing the entity. Buck becomes one of the few victims of Clyde to survive.
 ## Jamie Taylor
