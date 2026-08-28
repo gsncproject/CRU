@@ -18,7 +18,7 @@ aliases:
 - [[Director Michael Reeves]]
 ## Timeline Placement
 ## Locations
-The entire story plays in [[Los Angeles, CA (CRU)]], specifically in Reseda, CA (CRU).
+The entire story plays in [[Los Angeles, CA (CRU)]], specifically in [[Reseda, CA (CRU)]].
 - Reseda High School
 - Reseda Beach
 - Motel in Reseda

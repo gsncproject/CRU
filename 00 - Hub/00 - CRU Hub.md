@@ -32,8 +32,6 @@
 	- **United States of America**:
 		- [[New York (CRU)]]
 		- [[California (CRU)]]
-		- Oklahoma
-		- Texas
 	- **United Kingdom — Constituent Countries**:
 		- [[England (CRU)]]
 	- **Spain — Autonomous Communities**:
