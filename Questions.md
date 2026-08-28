@@ -338,4 +338,7 @@
 33. Kill someone 
 34. Kill someone 
 35. He is fucking terrified.
-36. Yes, that Kade Bogart isnt his real nam
+36. Yes, that Kade Bogart isnt his real name. Its Kade Whittaker.
+37. A lot. If u push him to far he snaps… in this scary way.
+38. HE IS THE NARRATOR OF AUTUMN 
+39. BAHAHAHAHH
