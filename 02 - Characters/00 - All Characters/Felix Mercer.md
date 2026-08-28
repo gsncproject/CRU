@@ -32,7 +32,7 @@ Near the end of I Couldn't Fix It, Clyde possesses Wren and uses her to kill Fel
 - [[Clyde Barrow (CRU)]] — Supernatural entity responsible for Felix's death by possessing Wren.
 - [[Kyra Aldun]] — ARA agent who becomes involved in the situation surrounding Felix and Wren.
 - [[Corey Gatsby]] — ARA member who becomes involved in the situation.
-- [[Aiden Janson]] — Director of the NYC ARA Branch who becomes involved in the situation.
+- [[Director Aiden Janson]] — Director of the NYC ARA Branch who becomes involved in the situation.
 
 ## Story Appearance
 - [[I Couldn‘t Fix It - Overview|I Couldn't Fix It]] — Protagonist; dies after Clyde possesses Wren and uses her to kill him.
