@@ -1,4 +1,4 @@
-#cru
+#cru #og #cr #rm #
 
 # Clyde Barrow (CRU)
 ## Basic Information
@@ -56,7 +56,7 @@ In [[Remember Me - Overview|Remember Me]], Clyde targets [[Cade Clay Buchanan]] 
 - [[Clyde Rules - Overview|Clyde Rules]]
 - [[Remember Me - Overview|Remember Me]]
 - [[The Circus of Your Mind - Overview|The Circus of Your Mind]]
-- [[TJTC - Overview|The Theatrics of the Crime]]
+- [[The Theatrics of the Law - Overview|The Theatrics of the Law]]
 ## Trivia / Classification
 - Clyde is not a ghost.
 - Clyde is not the historical Clyde Barrow.
