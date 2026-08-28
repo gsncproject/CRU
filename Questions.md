@@ -317,4 +317,8 @@
 12. Yes. 
 13. Well, not really. Except more trauma…
 14. Ruth Whittaker and Frank Whittaker
-15. Yes, an older brother named Brody Whittaker who is a successful lawyer in 
+15. Yes, an older brother named Brody Whittaker who is a successful lawyer in Detroit, Michigan.
+16. Je ne sais pas.
+17. Not good at all, thats why he ran away. He hated the life of being a rich brat.
+18. Nope.
+19. Yep, Autumn Price. A senior at 
