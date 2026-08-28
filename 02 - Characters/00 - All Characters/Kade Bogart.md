@@ -1,4 +1,4 @@
-#cru #autumn
+#cru #auts 
 
 # Kade Bogart
 ## Basic Information
@@ -39,7 +39,7 @@ Kade's real name is Kade Whittaker; "Kade Bogart" is an alias he uses.
 - [[Brody Whittaker]] — Kade's older brother, a successful lawyer in Detroit, Michigan.
 
 ## Organizations & Locations
-- [[AR]] — Kade becomes involved with the Los Angeles Branch.
+- [[Alien Research Agency|ARA]] — Kade becomes involved with the Los Angeles Branch.
 - [[Reseda High School]] — Kade attends school here.
 - Reseda — Kade lives here illegally after running away from home.
 
