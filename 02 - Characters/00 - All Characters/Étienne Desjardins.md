@@ -1,4 +1,4 @@
-#cru
+#cru #tjtc 
 
 # Étienne Desjardins
 ## Basic Information
@@ -7,7 +7,7 @@
 - Birthday: November 23rd, 1975
 - Birthplace: Saint-Étienne, France
 - Age (2024): 48
-- Residence: Northbridge, NY
+- Residence: [[Northbridge, NY (CRU)]]
 - Occupation: Office worker
 - Status: Alive
 ## Personality
