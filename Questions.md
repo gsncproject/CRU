@@ -330,4 +330,12 @@
 25. Yes.
 26. Not directly.
 27. /////
-28. Yeah to t
+28. Yeah to the Los Angeles Branch of ARA and Reseda High School 
+29. Not get involved in shit that might kill him.
+30. Dying, seeing his parents, police 
+31. He trusts people quickly despite saying he doesnt 
+32. Staying hidden 
+33. Kill someone 
+34. Kill someone 
+35. He is fucking terrified.
+36. Yes, that Kade Bogart isnt his real nam
