@@ -304,5 +304,11 @@
 
 # Kadeeeeeeee
 1. He is fifteen years old in [[Autumn - Overview|Autumn]] in 2023
-2. Je ne sais pas.
-3. 
+2. idfk
+3. Je ne sais pas.
+4. Brown hair, brown-green eyes.
+5. Quiet, sarcastic, chaotic, and sometimes an asshole
+6. He ran away from home in OHIOOOOOO at age 13 and now lives in Reseda illegally.
+7. Autumn 
+8. He is the protagonist and the narrator.
+9. 
