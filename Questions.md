@@ -301,3 +301,8 @@
 14. Je ne sais pas-
 15. Both, it is the meeting spot for the group (Kieran, Kyra, Corey, Hayden, Malik).
 16. Jace and Mikey… theyre arcchived.
+
+# Kadeeeeeeee
+1. He is fifteen years old in [[Autumn - Overview|Autumn]] in 2023
+2. Je ne sais pas.
+3. 
