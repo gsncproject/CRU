@@ -15,12 +15,12 @@ This matrix tracks which characters are established as appearing in each CRU sto
 | [[Winn Desjardins]]       |   — |      — |   — |     — |   — |   — |    ✓ |     — |   — |    — |
 | [[Kieran Jamie Shaw]]     |   — |      — |   — |     — |   — |   — |    — |     ✓ |   ✓ |    — |
 | [[Kyra Aldun]]            |   — |      — |   — |     — |   — |   — |    — |     ✓ |   ✓ |    ✓ |
-| [[Corey Gatsby]]          |   — |      — |   — |     — |   — |   — |    — |     ✓ |   ✓ |    ✓ |
+| [[Corey Gatsby]]          |   — |      — |   — |     — |   — |   — |    — |     ✓ |   — |    ✓ |
 | [[Hayden Shaw]]           |   — |      — |   — |     — |   — |   — |    — |     ✓ |   ✓ |    — |
-| [[Sage Carter]]           |   — |      — |   — |     — |   — |   — |    — |     ✓ |   — |    — |
+| [[Sage Carter]]           |   — |      — |   — |     — |   — |   — |    — |     ✓ |   ✓ |    — |
 | [[Oscar Zander]]          |   — |      — |   — |     — |   — |   — |    — |     ✓ |   — |    — |
 | [[John Curtis]]           |   ✓ |      — |   — |     — |   — |   — |    — |     ✓ |   ✓ |    — |
-| [[Winston Zander]]        |   ✓ |      — |   — |     — |   — |   — |    — |     ✓ |   ✓ |    — |
+| [[Winston Zander]]        |   — |      — |   — |     — |   — |   — |    — |     ✓ |   ✓ |    — |
 | [[Director Aiden Janson]] |   — |      — |   — |     — |   — |   — |    — |     ✓ |   ✓ |    — |
 | [[Loenna Thornton]]       |   — |      — |   — |     ✓ |   — |   — |    — |     — |   — |    — |
 | [[Korra Thornton]]        |   — |      — |   — |     ✓ |   — |   — |    — |     — |   — |    — |
