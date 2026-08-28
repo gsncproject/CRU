@@ -311,4 +311,6 @@
 6. He ran away from home in OHIOOOOOO at age 13 and now lives in Reseda illegally.
 7. Autumn 
 8. He is the protagonist and the narrator.
-9. He is a teen that 
+9. He is a teen that ran away from home and since then lives in a motel in Reseda but also going to school there. He has a crush on Autumn Price, and eventually gets into some shit because Agent Harry Beaumont finds him to recruit him in a way.
+10. He gets recruited by Beaumont and then betrayed.
+11. He gets ou
