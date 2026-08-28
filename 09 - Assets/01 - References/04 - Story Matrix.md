@@ -4,26 +4,26 @@
 
 This matrix tracks which characters are established as appearing in each CRU story. `✓` = established appearance; `—` = no established appearance yet.
 
-| Character                 |  OG | Autumn |  DF | TCOYM |  CR |  RM | TJTC | ATGTT | WOT | ICFI |
-| ------------------------- | --: | -----: | --: | ----: | --: | --: | ---: | ----: | --: | ---: |
-| [[Clyde Barrow (CRU)]]    |   ✓ |      — |   — |     ✓ |   ✓ |   ✓ |    ✓ |     — |   ✓ |    — |
-| [[Jeremy Cade]]           |   — |      — |   — |     ✓ |   — |   — |    — |     — |   ✓ |    — |
-| [[Jamie Taylor]]          |   — |      — |   — |     ✓ |   ✓ |   — |    ✓ |     — |   — |    — |
-| [[Sam Taylor]]            |   — |      — |   — |     — |   ✓ |   — |    ✓ |     — |   — |    — |
-| [[Richard Thornton]]      |   — |      — |   — |     — |   ✓ |   — |    ✓ |     — |   — |    — |
-| [[Wren Carter]]           |   — |      — |   — |     — |   — |   — |    ✓ |     — |   — |    ✓ |
-| [[Winn Desjardins]]       |   — |      — |   — |     — |   — |   — |    ✓ |     — |   — |    — |
-| [[Kieran Jamie Shaw]]     |   — |      — |   — |     — |   — |   — |    — |     ✓ |   ✓ |    — |
-| [[Kyra Aldun]]            |   — |      — |   — |     — |   — |   — |    — |     ✓ |   ✓ |    ✓ |
-| [[Corey Gatsby]]          |   — |      — |   — |     — |   — |   — |    — |     ✓ |   — |    ✓ |
-| [[Hayden Shaw]]           |   — |      — |   — |     — |   — |   — |    — |     ✓ |   ✓ |    — |
-| [[Sage Carter]]           |   — |      — |   — |     — |   — |   — |    — |     ✓ |   ✓ |    — |
-| [[Oscar Zander]]          |   — |      — |   — |     — |   — |   — |    — |     ✓ |   — |    — |
-| [[John Curtis]]           |   ✓ |      — |   — |     — |   — |   — |    — |     ✓ |   ✓ |    — |
-| [[Winston Zander]]        |   — |      — |   — |     — |   — |   — |    — |     ✓ |   ✓ |    — |
-| [[Director Aiden Janson]] |   ✓ |      — |   — |     ✓ |   — |   — |    — |     ✓ |   ✓ |    ✓ |
-| [[Loenna Thornton]]       |   — |      — |   — |     ✓ |   — |   — |    — |     — |   — |    — |
-| [[Korra Thornton]]        |   — |      — |   — |     ✓ |   — |   — |    — |     — |   — |    — |
+| Character                               |  OG | Autumn |  DF | TCOYM |  CR |  RM | TJTC | ATGTT | WOT | ICFI |
+| --------------------------------------- | --: | -----: | --: | ----: | --: | --: | ---: | ----: | --: | ---: |
+| [[Clyde Barrow (CRU)]]                  |   ✓ |      — |   — |     ✓ |   ✓ |   ✓ |    ✓ |     — |   ✓ |    — |
+| [[Jeremy Cade]]                         |   — |      — |   — |     ✓ |   — |   — |    — |     — |   ✓ |    — |
+| [[Jamie Taylor]]                        |   — |      — |   — |     ✓ |   ✓ |   — |    ✓ |     — |   — |    — |
+| [[Sam Taylor]]                          |   — |      — |   — |     — |   ✓ |   — |    ✓ |     — |   — |    — |
+| [[Detective Richard Thornton]]          |   — |      — |   — |     — |   ✓ |   — |    ✓ |     — |   — |    — |
+| [[Wren Carter]]                         |   — |      — |   — |     — |   — |   — |    ✓ |     — |   — |    ✓ |
+| [[Winston Desjardins\|Winn Desjardins]] |   — |      — |   — |     — |   — |   — |    ✓ |     — |   — |    — |
+| [[Kieran Jamie Shaw]]                   |   — |      — |   — |     — |   — |   — |    — |     ✓ |   ✓ |    — |
+| [[Kyra Aldun]]                          |   — |      — |   — |     — |   — |   — |    — |     ✓ |   ✓ |    ✓ |
+| [[Corey Gatsby]]                        |   — |      — |   — |     — |   — |   — |    — |     ✓ |   — |    ✓ |
+| [[Hayden Shaw]]                         |   — |      — |   — |     — |   — |   — |    — |     ✓ |   ✓ |    — |
+| [[Sage Carter]]                         |   — |      — |   — |     — |   — |   — |    — |     ✓ |   ✓ |    — |
+| [[Oscar Zander]]                        |   — |      — |   — |     — |   — |   — |    — |     ✓ |   — |    — |
+| [[John Curtis]]                         |   ✓ |      — |   — |     — |   — |   — |    — |     ✓ |   ✓ |    — |
+| [[Winston Zander]]                      |   — |      — |   — |     — |   — |   — |    — |     ✓ |   ✓ |    — |
+| [[Director Aiden Janson]]               |   ✓ |      — |   — |     ✓ |   — |   — |    — |     ✓ |   ✓ |    ✓ |
+| [[Loenna Thornton]]                     |   — |      — |   — |     ✓ |   — |   — |    — |     — |   — |    — |
+| [[Korra Thornton]]                      |   — |      — |   — |     ✓ |   — |   — |    — |     — |   — |    — |
 
 ## Story Key
 - **OG** — [[Origins - Overview|Origins]]

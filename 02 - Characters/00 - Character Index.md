@@ -50,7 +50,7 @@
 - [[Loenna Thornton]] 
 # M
 - Mandy Jensen 
-- Malik Hart 
+- [[Malik Hart]] 
 - Mary Taylor
 - Maurice Curtis 
 - Michael Reeves 
@@ -58,16 +58,16 @@
 # N
 
 # O
-- Oscar Zander 
+- [[Oscar Zander]] 
 # P
 - Peter Janson 
 # Q
 
 # R
-- Richard Thornton 
+- [[Detective Richard Thornton]] 
 - Robert Orlando 
 # S
-- Sage Carter 
+- [[Sage Carter]] 
 - [[Sam Taylor]]
 - Samuel Barnes 
 # T
@@ -77,9 +77,9 @@
 # V
 
 # W
-- Winn Desjardins
-- Winston Zander 
-- Wren Carter
+- [[Winston Desjardins]]
+- [[Winston Zander]] 
+- [[Wren Carter]]
 # X
 # Y
 # Z
