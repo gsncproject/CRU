@@ -3,30 +3,23 @@
 # Death & Afterlife Rules
 
 ## 1. Death
-Death ends biological life, but it does not necessarily end consciousness. When a person dies, their body is gone, but their consciousness may continue to exist.
-
-A normal death can therefore lead to several possibilities: the consciousness may move on, remain on Earth as a ghost, or potentially enter whatever exists beyond Earth. The exact destination after death is not completely understood.
+- Death ends biological life, but it does not necessarily end consciousness. When a person dies, their body is gone, but their consciousness may continue to exist.
+- A normal death can therefore lead to several possibilities: the consciousness may move on, remain on Earth as a ghost, or potentially enter whatever exists beyond Earth. The exact destination after death is not completely understood.
 
 ## 2. Souls
-Souls objectively exist in the CRU. This has been established through research connected to the [[Alien Research Agency]] and through inhuman experiments conducted by the [[Marble Arch Council]].
-
-The existence of souls is known, but their full nature is not understood. There is no established scientific explanation for everything a soul can do.
+- Souls objectively exist in the CRU. This has been established through research connected to the [[Alien Research Agency]] and through inhuman experiments conducted by the [[Marble Arch Council]].
+- The existence of souls is known, but their full nature is not understood. There is no established scientific explanation for everything a soul can do.
 
 ## 3. Ghosts
-Anyone can theoretically become a ghost.
-
-A ghost remains the person they were while alive. They retain their memories, personality, identity, emotions, and knowledge. Death does not automatically cause them to forget.
-
-Ghosts can continue learning and experiencing new things after death.
-
-Ghosts can physically interact with the world. They can be perceived by some living people while remaining completely imperceptible to others. Different people may also perceive the same ghost differently.
-
-A person who is not trapped by Clyde can choose to remain on Earth or move on.
+- Anyone can theoretically become a ghost.
+- A ghost remains the person they were while alive. They retain their memories, personality, identity, emotions, and knowledge. Death does not automatically cause them to forget.
+- Ghosts can continue learning and experiencing new things after death.
+- Ghosts can physically interact with the world. They can be perceived by some living people while remaining completely imperceptible to others. Different people may also perceive the same ghost differently.
+- A person who is not trapped by Clyde can choose to remain on Earth or move on.
 
 ## 4. The Afterlife
-The CRU does not currently establish one definitive explanation for what happens when a consciousness moves on. Possibilities include encountering God, Satan, or something else entirely.
-
-Characters and organizations may have beliefs about the afterlife, but the complete truth remains unknown.
+- The CRU does not currently establish one definitive explanation for what happens when a consciousness moves on. Possibilities include encountering God, Satan, or something else entirely.
+- Characters and organizations may have beliefs about the afterlife, but the complete truth remains unknown.
 
 ## 5. Clyde's Death Trap
 Clyde fundamentally changes what happens after death.
