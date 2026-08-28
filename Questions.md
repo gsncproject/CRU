@@ -316,4 +316,5 @@
 11. He gets out.
 12. Yes. 
 13. Well, not really. Except more trauma…
-14. 
+14. Ruth Whittaker and Frank Whittaker
+15. Yes, an older brother named 
