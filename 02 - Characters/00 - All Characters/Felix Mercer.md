@@ -19,7 +19,7 @@ Felix is initially skeptical of Wren's claims about supernatural beings. When Wr
 Not established.
 
 ## Biography
-Felix Mercer is a sixteen-year-old teenager from New York City and one of the protagonists of [[I Couldn't Fix It - Overview|I Couldn't Fix It]]. He has grown up in NYC and has been friends with Wren Carter since middle school.
+Felix Mercer is a sixteen-year-old teenager from New York City and one of the protagonists of [[I Couldn‘t Fix It - Overview|I Couldn‘t Fix It]]. He has grown up in NYC and has been friends with Wren Carter since middle school.
 
 Wren eventually drags Felix into investigating supernatural phenomena after she discovers evidence of supernatural beings through ARA leaks. Although Felix initially agrees to help her investigate, he does not believe Wren when she begins seeing Clyde and insists that she is simply paranoid.
 
@@ -35,7 +35,7 @@ Near the end of I Couldn't Fix It, Clyde possesses Wren and uses her to kill Fel
 - [[Aiden Janson]] — Director of the NYC ARA Branch who becomes involved in the situation.
 
 ## Story Appearance
-- [[I Couldn't Fix It - Overview|I Couldn't Fix It]] — Protagonist; dies after Clyde possesses Wren and uses her to kill him.
+- [[I Couldn‘t Fix It - Overview|I Couldn't Fix It]] — Protagonist; dies after Clyde possesses Wren and uses her to kill him.
 
 ## Trivia
 - Felix is one of Wren's closest friends and has known her since middle school.
