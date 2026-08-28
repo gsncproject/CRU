@@ -29,7 +29,7 @@ In [[Origins - Overview|Origins]], [[Director Aiden Janson]] encounters the enti
 
 In [[Clyde Rules - Overview|Clyde Rules]], Clyde appears to twelve-year-old [[Jamie Taylor]] after Jamie is bullied because of his ADHD and dyslexia and locked in a school storage room. Jamie is isolated, desperately needs someone to talk to, and is therefore easy for Clyde to manipulate. Jamie believes Clyde is an imaginary friend. They know each other for about a year.
 
-Clyde eventually influences Jamie into attacking [[Director Richard Thornton]] at Sunders Bridge. Richard had approached Jamie believing the boy was about to kill himself and attempted to talk him down. After Clyde tells Jamie to attack, Jamie charges Richard and gets hold of his gun. During the ensuing struggle Richard regains the gun and shoots Jamie in the side of the neck, killing him. Jamie blames Richard for his death, but not himself.
+Clyde eventually influences Jamie into attacking [[Detective Richard Thornton]] at Sunders Bridge. Richard had approached Jamie believing the boy was about to kill himself and attempted to talk him down. After Clyde tells Jamie to attack, Jamie charges Richard and gets hold of his gun. During the ensuing struggle Richard regains the gun and shoots Jamie in the side of the neck, killing him. Jamie blames Richard for his death, but not himself.
 
 In [[The Circus of Your Mind - Overview|The Circus of Your Mind]], Clyde appears through [[Jeremy Cade]]'s dreams and the strange dream-theater. Clyde wants Jeremy to write Jamie's story, while Jeremy does not realize that the events he is writing about are real. Clyde is therefore able to influence the story indirectly through Jeremy.
 
@@ -46,7 +46,7 @@ In [[Remember Me - Overview|Remember Me]], Clyde targets [[Cade Clay Buchanan]] 
 ## Relationships
 - [[Jamie Taylor]] — manipulated him; Jamie trusted Clyde as an imaginary friend
 - [[Jeremy Cade]] — appears to him through dreams and wants him to write Jamie's story
-- [[Director Richard Thornton]] — Jamie's attack on Richard leads to Jamie's death
+- [[Detective Richard Thornton]] — Jamie's attack on Richard leads to Jamie's death
 - [[Director Aiden Janson]] — encountered Clyde in 1988
 - [[Director Howard Beckham]] — impersonated by Clyde
 - [[Cade Clay Buchanan]] — later victim who survives
