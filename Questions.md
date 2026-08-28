@@ -313,4 +313,5 @@
 8. He is the protagonist and the narrator.
 9. He is a teen that ran away from home and since then lives in a motel in Reseda but also going to school there. He has a crush on Autumn Price, and eventually gets into some shit because Agent Harry Beaumont finds him to recruit him in a way.
 10. He gets recruited by Beaumont and then betrayed.
-11. He gets ou
+11. He gets out.
+12. Yes. 
