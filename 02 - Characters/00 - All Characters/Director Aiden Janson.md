@@ -7,7 +7,7 @@
 - Birthday: November 24th, 1967
 - Age: 56–57 during 2024 stories
 - Birthplace: [[Brooklyn, NY (CRU)]]
-- Residence: New York City, USA
+- Residence: [[New York City, NY (CRU)]]
 - Occupation: Director of the New York City Branch of the [[Alien Research Agency]]
 - Status: Alive
 ## Personality
@@ -17,7 +17,7 @@ Not established.
 ## Biography
 Aiden Janson is the Director of the NYC Branch of ARA. [[Director-General Elena Rostova]] is above him in the hierarchy. Elena knows his history and considers him the right person to direct the NYC facility.
 Janson was raised by his uncle [[Peter Janson]] after his parents died. He knows about [[Clyde Barrow (CRU)]] and has personally encountered the entity. In 1988, Clyde was trapped in an object that later broke and caused havoc; Clyde had previously impersonated [[Director Howard Beckham]], and the events ultimately caused Janson to murder Beckham.
-Janson is also the biological father of [[Sage Carter]]. Sage knows he is her father, and Janson knows she is his daughter. He protects Sage and later joins the Lab Four group in [[WOT - Overview|Weight of Tomorrow]].
+Janson is also the biological father of [[Sage Carter]]. Sage knows he is her father, and Janson knows she is his daughter. He protects Sage and later joins the Lab Four group in [[Weight of Tomorrow - Overview|Weight of Tomorrow]].
 ## Relationships
 - [[Director-General Elena Rostova]] — superior
 - [[Peter Janson]] — uncle; raised Janson after his parents died
