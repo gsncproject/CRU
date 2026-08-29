@@ -353,4 +353,5 @@
 7. Yes, Maurice Curtis was the founder and his co-founder was his best friend Friedrich Ziegel.
 8. To expose government secrets from the war and after war 
 9. Exposing secrets and figuring out that the supernatural exsits.
-10. The 1988 Clyde Incident was Janson‘s first mission as a recruit, and it was to retrieve an object stored at a MAC blacksite, a
+10. The 1988 Clyde Incident was Janson‘s first mission as a recruit, and it was to retrieve an object stored at a MAC blacksite, but it all went to hell and Janson got the order to securely take it out of the facility but then it broke because he was attacked and with that Clyde was free. In the further he impersonated Director Howard Beckham to harm Janson and then back in Washington Janson saw Beckham thinking its Clyde and killed him.
+11. 
