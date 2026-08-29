@@ -350,3 +350,7 @@
 4. When they locked away Clyde in that object Janson broke in 1988.
 5. 1964
 6. MAC was founded in 1947
+7. Yes, Maurice Curtis was the founder and his co-founder was his best friend Friedrich Ziegel.
+8. To expose government secrets from the war and after war 
+9. Exposing secrets and figuring out that the supernatural exsits.
+10. The 1988 Clyde Incident was Janson‘s first mission as a recruit, and it was to retrieve an object stored at a MAC blacksite, a
