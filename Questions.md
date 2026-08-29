@@ -342,3 +342,7 @@
 37. A lot. If u push him to far he snaps… in this scary way.
 38. HE IS THE NARRATOR OF AUTUMN 
 39. BAHAHAHAHH
+
+## HISTOROIOOOYY
+1. ARA was founded in 1962
+2. By obviously the U.S Government, but the first director was Director John 
