@@ -35,9 +35,9 @@
 - Frank Whittaker
 # G
 # H
-- [[Harry Beaumont]]
+- [[Agent Harry Beaumont]]
 - [[Hayden Shaw]] 
-- [[Howard Beckham]]
+- [[Director Howard Beckham]]
 # I
 # J
 - [[James Taylor Senior|James Taylor Sr.]]
@@ -45,7 +45,7 @@
 - [[Jamie Taylor]]
 - [[Jace Smith]]
 - [[Jeremy Cade]]
-- [[John Corson]]
+- [[Director John Corson]]
 - [[John Curtis]] 
 # K 
 - [[Kade Bogart]]
