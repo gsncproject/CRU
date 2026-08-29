@@ -7,7 +7,7 @@
 - Birthday: Not established
 - Birthplace: New York City, NY, USA
 - Age: 16
-- Residence: New York City, NY, USA
+- Residence: [[New York City, NY (CRU)]]
 - Occupation: Student
 - Status: Deceased
 - Role: Protagonist

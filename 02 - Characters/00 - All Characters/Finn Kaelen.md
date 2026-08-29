@@ -7,7 +7,7 @@
 - Birthday: Not established
 - Birthplace: Not established
 - Age: Two years older than [[Korra Thornton]]
-- Residence: Not established
+- Residence: [[London, UK (CRU)]], [[New York City, NY (CRU)]]
 - Occupation: ARA Agent
 - Status: Alive
 ## Personality
