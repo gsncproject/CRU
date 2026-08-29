@@ -1,8 +1,24 @@
-#cru
+#cru 
+
 # Autumn Price
+## Basic Information 
 - Full Name: Autumn Price
-- Birthday: November 2, 2004 — Reseda, CA
-- Role: Kade Bogart's crush/love interest in [[Autumn - Overview|Autumn]]
-- Kade attends high school with her; she is a senior.
-- Daniel Carrick is her ex-boyfriend.
-- Other details: Not yet established.
+- Aliases:
+- Birthday: November 2nd, 2004
+- Residence: Reseda, CA
+- Occupation: Student
+- Status: Alive
+## Personality 
+Not yet established.
+## Appearance 
+Not yet established.
+## Biography
+Autumn is a senior at Kade Bogart's high school in Reseda. She is Kade's crush and love interest in [[Autumn - Overview|Autumn]].
+## Relationships 
+- [[Kade Bogart]] — Kade has a crush on her.
+- [[Daniel Carrick]] — Her ex-boyfriend.
+## Story Appearance 
+- [[Autumn - Overview|Autumn]]
+## Trivia   
+- She is a senior at Kade's high school.
+- She is from Reseda, California.
