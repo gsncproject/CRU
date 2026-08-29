@@ -360,4 +360,8 @@
 14. Janson was detained and tried. Eventually they found him innocent because of psychological torture and he became the new Director of ARA.
 15. Yes.
 16. Yes.
-17. 
+17. In 1988.
+18. In 2012.
+19. They researched the supernatural and neutralized such beings when necessary and tried to locate Clyde.
+20. Around 1975.
+21. 
