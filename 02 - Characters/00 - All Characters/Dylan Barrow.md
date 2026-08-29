@@ -1,8 +1,22 @@
 #cru
+
 # Dylan Barrow
+## Basic Information
 - Full Name: Dylan Barrow
-- Birthday: April 22, 2007 — Pasadena, CA
-- Family: Connected to the Barrow family.
-- Story: Not established
+- Aliases:
+- Birthday: April 22nd, 2007 — Pasadena, CA
+- Residence:
+- Occupation:
 - Status: Not established
-- Other details: Not yet established.
+## Personality
+Not established.
+## Appearance
+Not established.
+## Biography
+Dylan Barrow is connected to the Barrow family.
+## Relationships
+- Barrow family — family connection.
+## Story Appearance
+Not established.
+## Trivia
+- He was born in Pasadena, California, on April 22nd, 2007.
