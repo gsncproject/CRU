@@ -369,4 +369,8 @@
 23. Yes, but not as often as MAC infiltrated ARA.
 24. The Roswell Incident.
 25. Yes and no, supernatural events have been happening all along but ARA always covered it up.  
-26. 
+26. Yes, u want examples?
+27. No.
+28. Yes.
+29. Good question, je ne sais pas.
+30. The Bell Witch.
