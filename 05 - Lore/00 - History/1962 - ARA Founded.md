@@ -15,5 +15,5 @@ ARA and MAC became aware of each other around 1975 and became enemies. MAC has i
 
 ## Leadership
 - First Director: [[Director John Corson]]
-- Director-General from 2012: [[Elena Rostova]]
-- NYC Branch Director: [[Aiden Janson]]
+- Director-General from 2012: [[Director-General Elena Rostova]]
+- NYC Branch Director: [[Director Aiden Janson]]
