@@ -2,7 +2,7 @@
 
 # 1947 — [[Marble Arch Council|MAC]] Founded
 
-[[Marble Arch Council|MAC]] was founded in 1947 by Maurice Curtis and his best friend Friedrich Ziegel.
+[[Marble Arch Council|MAC]] was founded in 1947 by [[Maurice Curtis]] and his best friend [[Friedrich Ziegel]].
 
 ## Original Purpose
 [[Marble Arch Council|MAC]] was created to expose government secrets from World War II and the post-war period.
