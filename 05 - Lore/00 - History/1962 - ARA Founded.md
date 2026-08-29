@@ -14,6 +14,6 @@ By 1964, ARA research had established that souls exist. ARA later became involve
 ARA and MAC became aware of each other around 1975 and became enemies. MAC has infiltrated ARA multiple times, including through undercover agents. ARA has also infiltrated MAC, though less frequently.
 
 ## Leadership
-- First Director: [[John Corson]]
+- First Director: [[Director John Corson]]
 - Director-General from 2012: [[Elena Rostova]]
 - NYC Branch Director: [[Aiden Janson]]
