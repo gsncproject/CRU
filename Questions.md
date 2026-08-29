@@ -345,4 +345,8 @@
 
 ## HISTOROIOOOYY
 1. ARA was founded in 1962
-2. By obviously the U.S Government, but the first director was Director John 
+2. By obviously the U.S Government, but the first director was Director John Corson.
+3. It was originally meant to only research supernatural phenomenas but then MAC got in their way SOOOOOOOOO
+4. When they locked away Clyde in that object Janson broke in 1988.
+5. 1964
+6. MAC was founded in 1947
