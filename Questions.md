@@ -364,4 +364,9 @@
 18. In 2012.
 19. They researched the supernatural and neutralized such beings when necessary and tried to locate Clyde.
 20. Around 1975.
-21. 
+21. Yes.
+22. Multiple times. They eveen have undercover agents in ARA.
+23. Yes, but not as often as MAC infiltrated ARA.
+24. The Roswell Incident.
+25. Yes and no, supernatural events have been happening all along but ARA always covered it up.  
+26. 
