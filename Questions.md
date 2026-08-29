@@ -374,14 +374,3 @@
 28. Yes.
 29. Good question, je ne sais pas.
 30. The Bell Witch.
-
-## Eventssssssss
-1. 1988 Clyde Incident:
-	1. 1988
-	2. Washington D.C 
-	3. The 1988 Clyde Incident was Janson‘s first mission as a recruit, and it was to retrieve an object stored at a MAC blacksite, but it all went to hell and Janson got the order to securely take it out of the facility but then it broke because he was attacked and with that Clyde was free. In the further he impersonated Director Howard Beckham to harm Janson and then back in Washington Janson saw Beckham thinking its Clyde and killed him.
-	4. Clyde 
-	5. Named in the abogve
-	6. None, it was covered up.
-	7. Janson.
-2. 
