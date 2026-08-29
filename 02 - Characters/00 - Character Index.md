@@ -5,77 +5,84 @@
 - [[Lieutenant Ariana Voss]]
 - Aris Vance
 - Arthur Sterling
-- Autumn Price 
+- [[Autumn Price]] 
 # B
-- Ben Buchanan
+- [[Ben Buchanan]]
 - Brian Lindon
 - Brian Wilski 
--  [[Cade Clay Buchanan|Buck Buchanan]] 
+- [[Cade Clay Buchanan|Buck Buchanan]]
 # C
+- [[Chase Evans]]
 - [[Claire Madison]]
 - [[Clyde Barrow (CRU)]]
 - [[Corey Gatsby]] 
-- Curtis Jensen
+- [[Curtis Jensen]]
 # D
-- Daniel Carrick 
+- [[Dallas Westbrook]]
+- [[Daniel Carrick]] 
 - Darrel Jensen 
-- Dylan Thornton 
+- [[Dennis Gatsby]]
+- [[Dylan Barrow]]
+- [[Dylan Thornton]] 
 # E
 - [[Director-General Elena Rostova]]
 - Elene Gabaraevi
-- Elisa Buchanan 
+- [[Elisa Buchanan]] 
 - [[Étienne Desjardins]]
 # F
 - [[Felix Mercer]] 
 - [[Finn Kaelen]]
+- Frank Whittaker
 # G
 # H
-- Harry Beaumont
+- [[Harry Beaumont]]
 - [[Hayden Shaw]] 
-- Howard Beckham
+- [[Howard Beckham]]
 # I
-
 # J
+- [[James Taylor Senior|James Taylor Sr.]]
 - [[Kieran Jamie Shaw|Jamie Shaw]] 
 - [[Jamie Taylor]]
+- [[Jace Smith]]
 - [[Jeremy Cade]]
+- [[John Corson]]
 - [[John Curtis]] 
 # K 
-- Kade Bogart 
-- Keith Duz 
+- [[Kade Bogart]]
+- [[Kayleigh Gatsby]]
+- [[Keith Duz]] 
 - [[Korra Thornton]]
 - [[Kyra Aldun]]
 # L 
 - Lee Mueller 
 - [[Loenna Thornton]] 
+- [[Lucas Gatsby]]
 # M
 - Mandy Jensen 
 - [[Malik Hart]] 
 - Mary Taylor
-- Maurice Curtis 
-- Michael Reeves 
+- [[Maurice Curtis]] 
+- [[Michael Reeves]] 
+- [[Mike Barrett]]
 - Molotov Orlando 
 # N
-
 # O
 - [[Oscar Zander]] 
 # P
-- Peter Janson 
+- [[Peter Janson]] 
 # Q
-
 # R
 - [[Detective Richard Thornton]] 
 - Robert Orlando 
+- Ruth Whittaker
 # S
 - [[Sage Carter]] 
 - [[Sam Taylor]]
-- Samuel Barnes 
+- [[Samuel Barnes]] 
+- [[Seymour Collins]]
 # T
-
 # U
-
 # V
-
 # W
 - [[Winston Desjardins]]
 - [[Winston Zander]] 
@@ -83,3 +90,9 @@
 # X
 # Y
 # Z
+
+## Additional Characters
+- [[Brody Whittaker]]
+- [[Friedrich Ziegel]]
+- [[Mila Gatsby]]
+- [[Seymour Collins]]
