@@ -4,32 +4,30 @@
 ## Basic Information
 - Full Name: John Curtis
 - Aliases: Curtis
-- Birthday: December 3rd 1973
-- Birthplace: Chicago, IL
-- Age: 50 (2024); 51 (2025)
+- Birthday: December 3rd, 1973 — Chicago, IL
 - Residence: [[New York City, NY (CRU)]]
 - Occupation: Leader of [[Marble Arch Council]]
 - Status: Alive
 ## Personality
-John is positioned as one of the major opposing figures connected to the [[Marble Arch Council]]. His exact personality and motivations are not yet fully documented.
+Cold-hearted, brutal, manipulative, and obsessive. John is difficult to kill and is one of the major antagonists of the CRU.
 ## Appearance
-No detailed physical description is currently established.
+Not established.
 ## Biography
-John Curtis is the leader of the [[Marble Arch Council]] and the son of [[Maurice Curtis]]. He is involved in the organization's activities and comes into direct conflict with [[Kieran Jamie Shaw]], [[Director Aiden Janson]], and [[Sage Carter]].
+John Curtis is the son of [[Maurice Curtis]], who established and founded the [[Marble Arch Council]]. John became one of MAC's two directors alongside [[Winston Zander]]. He works for MAC and is deeply involved in its operations.
 
-In [[A Techies Guide to Trouble - Overview|A Techies Guide to Trouble]], [[Kieran Jamie Shaw]] and [[Sage Carter]] investigate the [[Marble Arch Council]] and target its two leaders, John and [[Winston Zander]].
-
-John also appears in [[Origins - Overview|Origins]] and [[Weight of Tomorrow - Overview|Weight of Tomorrow]], establishing him as a recurring CRU antagonist/organization leader rather than a one-story character.
+John is involved in [[A Techies Guide to Trouble - Overview|A Techies Guide to Trouble]], where Kieran, Kyra, Corey, Hayden, and Malik's group attempts to catch Oscar and deal with MAC-related threats. He also appears in [[Origins - Overview|Origins]] and [[Weight of Tomorrow - Overview|Weight of Tomorrow]].
 ## Relationships
-- [[Maurice Curtis]] (father)
-- [[Kieran Jamie Shaw]] (enemy)
-- [[Director Aiden Janson]] (enemy)
-- [[Sage Carter]] (enemy)
-- [[Winston Zander]] (co-leader of [[Marble Arch Council]])
+- [[Maurice Curtis]] — father; founder of MAC
+- [[Winston Zander]] — co-director of MAC
+- [[Kieran Jamie Shaw]] — enemy
+- [[Sage Carter]] — enemy
+- [[Director Aiden Janson]] — enemy
 ## Story Appearance
-- [[A Techies Guide to Trouble - Overview|A Techies Guide to Trouble]]
 - [[Origins - Overview|Origins]]
+- [[A Techies Guide to Trouble - Overview|A Techies Guide to Trouble]]
 - [[Weight of Tomorrow - Overview|Weight of Tomorrow]]
 ## Trivia
-- John is one of the two leaders of the [[Marble Arch Council]].
-- His father is [[Maurice Curtis]].
+- John is a major MAC antagonist.
+- He is one of MAC's two directors alongside Winston Zander.
+- He is difficult to kill.
+- His father is Maurice Curtis.
