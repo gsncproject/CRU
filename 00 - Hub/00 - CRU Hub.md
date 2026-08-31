@@ -75,7 +75,7 @@
 ## 07 - Planning 
 - **Story Ideas**:
 	- [[Weight of Tomorrow - Overview|Weight of Tomorrow]]
-	- [[What Was Coming - Overview|What ]]
+	- [[What Was Coming - Overview|What Was Coming]]
 - **Scene Ideas**:
 - [[00 - Character Ideas]]
 ## 08 - Documents
@@ -92,3 +92,5 @@
 	- [[00 - Birthday Calendar]]
 	- [[01 - Deaths]]
 	- [[02 - Ages by Year]]
+	- [[03 - Death & Afterlife Rules]]
+	- [[04 - Story Matrix]]
