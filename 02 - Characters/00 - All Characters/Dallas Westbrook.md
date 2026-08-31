@@ -1,8 +1,22 @@
 #cru
+
 # Dallas Westbrook
+## Basic Information
 - Full Name: Dallas Westbrook
-- Birthday: January 3, 2007 — Los Angeles, CA
+- Aliases:
+- Birthday: January 3rd, 2007 — Los Angeles, CA
+- Residence:
+- Occupation:
 - Status: Not established
-- Role: Not established
-- Story: Not established
-- All other details: Not yet established.
+## Personality
+Not established.
+## Appearance
+Not established.
+## Biography
+Not established.
+## Relationships
+Not established.
+## Story Appearance
+Not established.
+## Trivia
+- He was born in Los Angeles, California, on January 3rd, 2007.
