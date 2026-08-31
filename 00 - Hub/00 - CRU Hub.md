@@ -58,7 +58,12 @@
 	- [[Northbridge Middle School]]
 ## 05 - Lore 
 - **History**:
+	- [[00 - History Hub]]
+	- [[1947 - MAC Founded]]
+	- [[1962 - ARA Founded]]
+	- [[1988 - Clyde Incident]]
 - **Science**:
+	- [[00 - Universe Rules]]
 - **Entities**:
 ## 06 - Relationships
 - **Family Trees**:
@@ -70,6 +75,7 @@
 ## 07 - Planning 
 - **Story Ideas**:
 	- [[Weight of Tomorrow - Overview|Weight of Tomorrow]]
+	- [[What Was Coming - Overview|What ]]
 - **Scene Ideas**:
 - [[00 - Character Ideas]]
 ## 08 - Documents
