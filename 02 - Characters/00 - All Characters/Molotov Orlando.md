@@ -1,6 +1,6 @@
 #cru
 # Molotov Orlando
-- Full Name: Molotov Orlando
+- Full Name: Oliver Orlando 
 - Status: Not established
 - Role: Not established
 - Story: Not established
