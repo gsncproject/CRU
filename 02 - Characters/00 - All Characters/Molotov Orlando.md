@@ -1,7 +1,23 @@
 #cru
+
 # Molotov Orlando
-- Full Name: Oliver Orlando 
+## Basic Information
+- Full Name: Oliver Orlando
+- Aliases: Molotov Orlando
+- Birthday:
+- Residence:
+- Occupation:
 - Status: Not established
-- Role: Not established
-- Story: Not established
-- All other details: Not yet established.
+## Personality
+Not established.
+## Appearance
+Not established.
+## Biography
+Not established.
+## Relationships
+- Orlando family — family connection; exact relationships not established.
+## Story Appearance
+Not established.
+## Trivia
+- His full name is Oliver Orlando.
+- He uses the alias Molotov Orlando.
