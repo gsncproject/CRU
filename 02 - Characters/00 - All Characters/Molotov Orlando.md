@@ -3,7 +3,7 @@
 # Molotov Orlando
 ## Basic Information
 - Full Name: Oliver Orlando
-- Aliases: Molotov Orlando
+- Aliases: Molotov 
 - Birthday:
 - Residence:
 - Occupation:
