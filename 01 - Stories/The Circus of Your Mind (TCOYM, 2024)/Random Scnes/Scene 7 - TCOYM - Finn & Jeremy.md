@@ -8,7 +8,7 @@ The café down the street from my flat is always filled during the morning hours
 
 Only today… I don‘t feel like writing. The last thing I wrote was how Jamie left after his argument with his sister Sam. Just like last night went…
 
-„Finn and I are dating—“
+„Finn and I are dating-“
 
 Weird that I don‘t feel bad for telling Finn to go and fuck himself. But it is weird that I just stormed out of my best friends flat. I don‘t even know if I can ever face her again. I love her and she loves… him.
 

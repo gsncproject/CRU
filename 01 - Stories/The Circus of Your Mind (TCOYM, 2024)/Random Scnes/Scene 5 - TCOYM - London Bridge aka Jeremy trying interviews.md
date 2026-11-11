@@ -8,7 +8,7 @@ I geniuenly can‘t tell if these are all London folks or tourist occupying Lond
 
 Everyone says I‘m extroverted but now I feel deeply insecure and introverted. Maybe I should just leave and get a coffee. No, you will do this.
 
-Breathe in and out. In. Out. No, I can‘t do this— In and out! Despite feeling my confidence taking a run to the other side of the city, I approach the first couple. They seem young and friendly. Oh, I hope they‘re friendly. 
+Breathe in and out. In. Out. No, I can‘t do this- In and out! Despite feeling my confidence taking a run to the other side of the city, I approach the first couple. They seem young and friendly. Oh, I hope they‘re friendly. 
 
 „Excuse me?“ I say and they turns to face me, „H-Hi. I‘m Jeremy, and I have a question regarding a play I‘m writing.“
 

@@ -4,9 +4,9 @@
 
 „As I was saying,“ I continue, „It‘s about a kid that hallucinates this dead fake-y outlaw.“
 
-Korra looks at me as if I try to explain why Lama‘s are the best animals on earth. No, seriously, they‘re cute. And so… so Lama-y. All Lama‘s are named Winn, that‘s a law now. „‚Fake-y outlaw‘ isn‘t that… bit too sterotype—„ she says slowly.
+Korra looks at me as if I try to explain why Lama‘s are the best animals on earth. No, seriously, they‘re cute. And so… so Lama-y. All Lama‘s are named Winn, that‘s a law now. „‚Fake-y outlaw‘ isn‘t that… bit too sterotype-„ she says slowly.
 
-„Yeah, nope,“ I chuckle, now invested, „It is the best premise-idea I ever had, K. Because—„ Because I dream of a dead outlaw every night? I can‘t tell her that, that‘s way too cliché, „Because… No one before me planned to take Clyde Barrow and BOOM! Make him into… into that,“ I gesture vaguely at my notebook on the table between us. 
+„Yeah, nope,“ I chuckle, now invested, „It is the best premise-idea I ever had, K. Because-„ Because I dream of a dead outlaw every night? I can‘t tell her that, that‘s way too cliché, „Because… No one before me planned to take Clyde Barrow and BOOM! Make him into… into that,“ I gesture vaguely at my notebook on the table between us. 
 
 She sighs, and its the same sigh she does when Loenna did something unforgettable. Shit. I‘m fucked. Korra taps the notebook with her finger, „Jer, it‘s a good… premise.“
 
@@ -20,7 +20,7 @@ I stare at her. Not put that on stage? Things like Sunset Boulevard exist? And B
 
 „I…“ she stutters, „I know Sunset Boulevard but what is Blasted?“
 
-„Torture,“ I grin, „Beautiful torture—„
+„Torture,“ I grin, „Beautiful torture-„
 
 „Jeremy, shut up,“ Korra makes this face people do when they imagine things they rather not, „No one told me being best friends with playwrights would come with trauma.“
 
@@ -28,7 +28,7 @@ I stare at her. Not put that on stage? Things like Sunset Boulevard exist? And B
 
 She points at my notebook, „Yeah, you were a kid thinking he could be a pilote.“
 
-„That‘s—„ I don‘t have a comeback, because she‘s right, „Fact is, I like my play.“
+„That‘s-„ I don‘t have a comeback, because she‘s right, „Fact is, I like my play.“
 
 „Yeah, you,“ she crosses her arms, why does she always have to look like she‘ll go full mum mode? „And what does Samuel say?“
 

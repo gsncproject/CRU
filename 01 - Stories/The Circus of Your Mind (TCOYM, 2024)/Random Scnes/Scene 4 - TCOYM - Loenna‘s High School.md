@@ -14,7 +14,7 @@ Deep breath in, slowly exhale and you‘ll be fine. Hopefully. „No,“ I say, 
 
 I hear her sigh in that annoying way teens do when they don‘t get what they want. I‘m certainly not giving her what she wants, this is my play and not hers. Who does she think she is? My mum? And mum is dead. God, rest her soul. Mine too.
 
-„Then you should make Thornton corrupt,“ Loenna shrugs, „You need one villain anyway—„
+„Then you should make Thornton corrupt,“ Loenna shrugs, „You need one villain anyway-„
 
 I wave my notebook, „I have a villain and he is the devils reincarnation of Clyde Chestnut Barrow. I thought you read this!“
 
@@ -36,11 +36,11 @@ Nope, I‘m gone. That‘s my sign to turn around and leave and run for my playw
 
 Loenna keeps pushing me, while this hoard of gremlins stares at us, „You need inspo, right?“ 
 
-„I need alcohol— No, better drugs!“ I deadpan.
+„I need alcohol- No, better drugs!“ I deadpan.
 
 „So, watch,“ she forces me down in one of the front row seats, „Stay there.“
 
-I glance behind me, back towards the exit. God, that exit sign glowed like it was calling me, „But—“
+I glance behind me, back towards the exit. God, that exit sign glowed like it was calling me, „But-“
 
 Loenna rips my notebook out of my hand, „Nope, watch.“
 

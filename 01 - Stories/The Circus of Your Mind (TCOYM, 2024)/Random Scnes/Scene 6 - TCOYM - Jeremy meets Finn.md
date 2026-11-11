@@ -48,7 +48,7 @@ Finn looks fake-concerned, „You sure, mate? S-Sure this is all fine?“
 
 I nod, keeping that ugly smile on my face.
 
-„I know you and Korra are close friends and—„
+„I know you and Korra are close friends and-„
 
 I shake my head, „Nah, it‘s fine,“ my smile drops, „Just go fuck yourself.“ Then I storm off. I hear Korra yelling my name, but I barely hear it.
 

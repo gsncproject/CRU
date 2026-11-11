@@ -10,7 +10,7 @@ It is almost ten at night by now and I realise that whatever Clyde is, has to be
 
 A healthy person would go to bed by now, but lucky me I‘m not a healthy person, I lost about ninty-seven percent of my sanity in the last twenty-four hours. And I miss my sanity, can someone give me theirs? I need it more than money. Actually I take money too, because money makes happy, did you know that? 
 
-That being said, I will not sleep a single second tonight. And I have an idea how to kill time. Somewhere in my drawer there has to be an empty notebook— HA! Found it! I find my desk chair or well… it finds me, pick up a pen and start writing.
+That being said, I will not sleep a single second tonight. And I have an idea how to kill time. Somewhere in my drawer there has to be an empty notebook- HA! Found it! I find my desk chair or well… it finds me, pick up a pen and start writing.
 
 Title: “What are you?“ Underlined of course. This has to seem professional.
 

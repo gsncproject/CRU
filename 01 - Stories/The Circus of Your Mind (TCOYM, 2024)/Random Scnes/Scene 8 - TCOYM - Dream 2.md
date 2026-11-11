@@ -18,7 +18,7 @@ I shake my head, „Nah, my best friend who‘s also my crush, is dating someone
 
 „Damn,“ he chuckles, “Love‘s a funny thing, ain‘t it?“
 
-My fingers twist harder, „Yeah, you can say it like its easy. You got Bonnie—“
+My fingers twist harder, „Yeah, you can say it like its easy. You got Bonnie-“
 
 „Hold yer horses, Writer,“ he drawls, „I ain‘t the real Clyde Barrow, you know?“
 
