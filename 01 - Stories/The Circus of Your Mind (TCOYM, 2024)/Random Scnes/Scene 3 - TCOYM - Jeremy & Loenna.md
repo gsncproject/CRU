@@ -8,7 +8,7 @@ She held my notebook up, opened on some page I couldn‘t identify, but there wa
 
 I glance away, „Because…“ Honestly, I don‘t know. Well, I know, because I thought of Korra, but I can‘t tell her that, „Because it was the first coming to my mind?“
 
-The teen eyed me like I threw her phone at the wall, „Liaarrrrr! Jer, you are a playwright. Start writing good stories instead of… bullshit—„
+The teen eyed me like I threw her phone at the wall, „Liaarrrrr! Jer, you are a playwright. Start writing good stories instead of… bullshit-„
 
 „That‘s no bullshit!“ I point at the book. She really called my story bullshit. God help her. „Just because you‘re used to the Broadway and West End crap doesn‘t mean mine is rubbish. You‘re seventeen, you don‘t know show business.“
 

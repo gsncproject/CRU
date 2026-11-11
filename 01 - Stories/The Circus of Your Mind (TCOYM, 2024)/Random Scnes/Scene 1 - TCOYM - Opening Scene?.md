@@ -18,10 +18,10 @@ Of course I don’t have a minute, hell I don’t have a second. I’m currently
 
 Paper rustles on her end. So, she’s probably at work. Show-off, be happy you have a reliable job, K, „Not much,“ she responds after a moment, „See, Samuel called,“
 
-„Korra—“
+„Korra-“
 
 „No, Jeremy,“ she cuts me off, „He said he’ll drop you if you don’t get him another story by Tuesday. You’re gonna loose your job, you know that?“
 
-No, I didn’t know— I do know, what the fuck do you think? I love her but she is very annoying and very stubborn at times, like right now! „It’s Thursday! I’ve been trying to come up with something, Korra,“ I try, „But my mind just keeps deciding to quit the cooperation.“
+No, I didn’t know- I do know, what the fuck do you think? I love her but she is very annoying and very stubborn at times, like right now! „It’s Thursday! I’ve been trying to come up with something, Korra,“ I try, „But my mind just keeps deciding to quit the cooperation.“
 
 That at least was true, with the twist that my mind already quitted after releasing my last play. Which was, hold on… twenty-one months ago. Wow, almost two years. Record. Now I see why Sam hates me. I would hate me too.
