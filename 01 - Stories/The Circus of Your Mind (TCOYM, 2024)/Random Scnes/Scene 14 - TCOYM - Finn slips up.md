@@ -34,7 +34,7 @@ I take one or four steps deeper into the flat, trying to catch some of what that
 
 „…“
 
-„Sir—“
+„Sir-“
 
 Is he some kind of undercover spy or why does he talk like one? Is he spying on me? Hell, he better not be or I‘ll murder him.
 
@@ -68,7 +68,7 @@ My ass I did. I know what I heard and I am so telling Korra, „I‘ll tell Korr
 
 „Forget whatever you heard, okay?“ he speaks into my ear. 
 
-I try to wiggle free but Jesus, his grasp is pretty tight. Sexy— JEREMY YOU ARE NOT GAY!
+I try to wiggle free but Jesus, his grasp is pretty tight. Sexy- JEREMY YOU ARE NOT GAY!
 
 „Don‘t yell, Jeremy,“ he says as if that would help me. 
 

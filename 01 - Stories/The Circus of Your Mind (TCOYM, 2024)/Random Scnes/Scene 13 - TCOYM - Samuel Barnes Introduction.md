@@ -6,7 +6,7 @@ When Samuel Barnes tells you that he wants to meet with you, you better go or th
 
 Now to the thing I don‘t get: He wants to meet in Hyde Park. Out of all places he picks the most crowded in London? But yes, I am now standing in Hyde Park, desperately trying to find my biggest nightmare.
 
-„Jeremy!“ someone behind me shouts, I turn around— Oh God, help me. It‘s Samuel. And I still hate this grey trechcoat he always wears, it just doesn‘t go with his already grey hair… I know people who would call this a fashion crime.
+„Jeremy!“ someone behind me shouts, I turn around- Oh God, help me. It‘s Samuel. And I still hate this grey trechcoat he always wears, it just doesn‘t go with his already grey hair… I know people who would call this a fashion crime.
 
 I smile uncertain, „Hello, Samuel…“
 
@@ -16,7 +16,7 @@ A story? Yes. Unwanted trauma? Yes. Finished? Not quite. „Working on it.“
 
 He snaps his finger in my face and I flinch back, „‚Working on it‘ is not good enough! I need it yesterday!“
 
-Can I strangle him? Or pull a Sunset Boulevard on him? „I‘ve been busy, Sam—“
+Can I strangle him? Or pull a Sunset Boulevard on him? „I‘ve been busy, Sam-“
 
 „Busy my arse!“ His finger now almost touches my nose, „You will deliever or I will drop you, Jeremy!“
 
@@ -36,7 +36,7 @@ I visibly flinch. Some bypassers pay us a disgusted glare, and I deeply believe 
 
 „YOU CAN‘T KILL A KID ON STAGE!“ Samuel continues, „There are ethicals, JEREMY!“
 
-Again, Sunset Boulevard and Blasted exist… „But Sunset—“
+Again, Sunset Boulevard and Blasted exist… „But Sunset-“
 
 His finger jabs at me once more, „I DON‘T CARE ABOUT FUCKING BROADWAY!“ I instinctively take a step back. He still invades my personal space. Rude.
 
