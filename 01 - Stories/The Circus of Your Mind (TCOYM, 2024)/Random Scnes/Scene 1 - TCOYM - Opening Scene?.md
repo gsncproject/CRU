@@ -8,7 +8,7 @@ So what? That one great play of Remember Me is all I could write? Honestly, I mi
 
 I pick up the pen once more and write „Sam made eggs. Again. For breakfast.“, crossed out immediately, then I write „Fuck me.“ and cross it out once again. Though, „Fuck Me“ isn’t the next award-winning show either. Honestly, very sad because it could pay for something better than whatever this apartment is supposed to be.
 
-My phone buzzes. God knows I know ist Korra. You know, Korra Thornton, great journalist, my best friend since grade six, terrifying and professional destroyer of my concentration when I don’t own it. God, I love her. Not literally, but as, you know, a friend? Okay, maybe literally, but don’t tell her.
+My phone buzzes. God knows I know ist Korra. You know, Korra Thornton, great journalist, my best friend since grade six, terrifying and professional destroyer of my focus when I don’t own it. God, I love her. Not literally, but as, you know, a friend? Okay, maybe literally, but don’t tell her.
 
 Back to the fact that she calls me, because I should answer. Last time I didn’t answer she almost broke down my flat door, cost me £197 to replace it, not that I have much money anyway, and she didn’t even offer to pay… which relatable because I didn’t pay her when I broke her favorite mug. That’s why the best decision is to answer her, because I don’t want to lose more money because of her. I put on speaker so that I can continue my staring contest with the empty page.
 
